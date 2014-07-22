@@ -1,0 +1,8 @@
+---
+layout: post
+title: FREE GAZA IN THE MEDIA (UPDATE)
+joomla_id: 344
+joomla_url: free-gaza-in-the-media-update
+date: 2008-08-12 19:21:41.000000000 +02:00
+---
+(13.08.2008) Media Clipping Service: The Free Gaza Movement. The following list is a collection of media responses to the Free Gaza Movement's boat trip from Cyprus to Gaza available on the internet. The list is steadily updated. It is not comprehensive, but covers most of the relevant articles and some audios and videos, also for non-English coverage.&nbsp;<a target="_blank" href="http://www.freegaza.org/uploads/august2008/free_gaza_in_the_media.pdf" /> (13.08.2008) Media Clipping Service: The Free Gaza Movement. The following list is a collection of media responses to the Free Gaza Movement's boat trip from Cyprus to Gaza available on the internet. The list is steadily updated. It is not comprehensive, but covers most of the relevant articles and some audios and videos, also for non-English coverage. As there is more and more material not every item can be posted to the Free Gaza website, so here you have access to the bulk of the coverage. Follow the link below to open the PDF document.<br /><a target="_blank" href="http://www.freegaza.org/uploads/august2008/free_gaza_in_the_media.pdf">http://www.freegaza.org/uploads/august2008/free_gaza_in_the_media.pdf</a> <p><a target="_blank" href="http://www.freegaza.org/uploads/august2008/free_gaza_in_the_media.pdf" /></p><p><a href="http://www.freegaza.org/uploads/august2008/free_gaza_in_the_media.pdf ">http://www.freegaza.org/uploads/august2008/free_gaza_in_the_media.pdf </a></p>

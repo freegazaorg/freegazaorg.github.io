@@ -1,0 +1,9 @@
+---
+layout: post
+title: Apology regarding TWEET
+joomla_id: 1367
+joomla_url: apology-regarding-tweet
+date: 2012-10-04 20:15:05.000000000 +02:00
+---
+<p><span style="color: #000000;">A TWEET from the Free Gaza TWITTER account was posted several days ago that had a link to a  lecture titled, "Zionists Ran the Holocaust and the Concentration  Camps." This TWEET did not come from Free Gaza,<span style="color: #ff0000;"> <span style="color: #000000;">and does not represent FG's position in any way whatsoever; in fact we condemn its content</span></span><span style="color: #000000;">.</span> It came from Greta's private Facebook page and was to be shared with a group of  people  who were discussing propaganda and racism, and this link was an example of the </span><span style="color: #000000;">terrible propaganda that could be spewed on websites.</span> <span style="color: #000000;">For some  reason, Facebook connected our Free Gaza account to her personal Facebook  account, and the link was posted. <span style="color: #ff0000;"><br /></span><br />Greta has added, "I apologize that I did not watch the video before hitting SHARE on  Facebook. I was in a rush to get to a book event and simply reposted.  The fault is completely mine. Free Gaza had nothing to do with the post at all. "<br /><br />The Free Gaza movement is a human rights group that  is an expression of citizen nonviolent, direct action,  confronting Israel's ongoing abuses of Palestinian human and political  rights and will continue to challenge Israel's illegal siege on Gaza. <span style="color: #ff0000;"><span style="color: #000000;">In  the future, we will work to ensure that material posted from  our account relates only to FGM's activities, including Gaza's Ark.</span></span></span></p>
+<p><br /><span style="color: #000000;">Free Gaza had nothing to do with the post and apologizes unreservedly for the post and its content. <span style="color: #ff0000;"><br /></span></span></p>

@@ -1,0 +1,8 @@
+---
+layout: post
+title: Recovering a dead body under Israeli fire
+joomla_id: 914
+joomla_url: recovering-a-dead-body-under-israeli-fire
+date: 2009-06-15 21:12:08.000000000 +02:00
+---
+Maybe it will make a difference if we can put a face on the tragedies of the Palestinians... the last victims of WWII. They have paid the price for the past 61 years of what Europe did to the Jews. And they had no part in it. Yet the world turns away from the more than 10 million displaced Palestinians around the world, hoping that somehow they will go away, and we won't have to face what we have done, especially we Americans who fund Israeli brutality to the tune of 3 billion of our hard-earned tax dollars a year. And that's only the foreign aid.<br /> <br />The young man in the video was killed either by gunshots or other means as he was farming his field, and he lay in the field of Gaza for over a month while his family frantically tried to reach him. If three billion dollars a year is too abstract, if one death more or less in another country is insignificant, just listen to this father cry as they find his son in a field that belongs to the farmers in Gaza. Israeli soldiers shoot at him and the internationals trying to help.<br /> <br />It is time we put our foot down and insisted that not another nickle goes to an Apartheid state practicing slow-motion genocide in front of our faces.<br /><br /><a href="http://farmingunderfire.blogspot.com/2009/06/recovering-dead-body-under-israeli-fire.html" target="_blank">http://farmingunderfire.<wbr />blogspot.com/2009/06/<wbr />recovering-dead-body-under-<wbr />israeli-fire.html</a>

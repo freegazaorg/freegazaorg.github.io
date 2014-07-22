@@ -1,0 +1,20 @@
+---
+layout: post
+title: Palestinian Film Festival in Cape Town
+joomla_id: 1077
+joomla_url: palestinian-film-festival-in-cape-town
+date: 2009-09-19 15:06:44.000000000 +02:00
+---
+<p><br />The Palestinian Struggle and Human Spirit Film Festival to be held in Cape Town, South Africa, from October 2 - 4, 2009, will feature U.S. Congresswoman Cynthia McKinney, who has been on two Free Gaza Movement missions to Gaza and Free Gaza organizer, Huwaida Arraf. In addition, Aki Nawwaz's film documenting the trials and tribulations of the first historic voyage to Gaza, "To Gaza With Love." Please see below for more detail and spread the word!</p>
+<p>Follows the press release:</p>
+<p>
+
+</p>
+<p>Channel 4 Network SA, a Cape Town-based International News Network and Syndication company, will be hosting a Palestinian Film Festival from the 2nd to 4th October 2009 in Cape Town.</p>
+<p>The objectives of the festival are to concientise the public and create a general awareness around the situation in Palestine. To foster a culture of human rights, respect for human dignity and justice for all. The Palestinian Struggle denotes the ultimate struggle of the Human Spirit’s will to survive; it is a cry to the world of nations for the rediscovery of their humanity; a battle for the soul of humanity. The world has a responsibility to honour its commitment to its promise, “never again”. This Palestinian Struggle and Human Spirit Film Festival is aimed at honouring that commitment.</p>
+<p>Channel 4 Network SA is excited to announce that former US Congresswoman and 2009 US presidential candidate, Cynthia McKinney will be the special guest at the festival. McKinney gained prominence when she was arrested by the Israeli Occupation Force Navy trying to break the siege on Gaza. Co-founder of the International Solidarity Movement and board member of the Free Gaza Movement, Huwaida Arraf will also honour the festival with her presence. Several local dignitaries, including the likes of secretary-general of COSATU, Zwelinzima Vavi, prominent academic, Dr Virginia Tilley, Dr Shabir Wadee and many more will also grace the occasion, delivering lectures and presentations. The internationally-acclaimed Act of State: 1967 – 2007 photo exhibition by Tel Aviv-based “visual philosopher”, Ariella Azoulay, will be on display. In addition, a keffiyah picket in support of the Palestinian Struggle will take place. McKinney will partake in an olive tree-planting/sod-turning ceremony, releasing white doves, twinning with Gaza City where a similar event will take place as a symbolic gesture of peace. Also other exciting events will be taking place throughout the weekend, including, various displays, but this is a closely guarded secret and patrons will have to be their to experience the atmosphere.</p>
+<p>The festival’s main attraction however, will be its excellent array of documentaries on show. Channel 4 Network is proud to announce that four documentaries that will premiere (shown for the very first time) at the festival, namely, Coca Cola &amp; Israel: Is Not The Real Thing (first locally produced film by Channel 4 Network SA, director, Fahrie Hassan); Tiger by the Tail (by British director, Robert Sutcliffe), To Gaza With Love (Director, Aki Nawaz) and the contribution from the USA, Operation Small Axe (Block Report Radio). Another scoop is the acclaimed DEFAMATION an exposé on anti-Semitism, which screened recently at the Encounters Film festival. 6 Floors to Hell, Zainab’s Story, Deir Yassin Remembered, Demolitions, Offside and acclaimed documentary film maker of “Iron Wall’ fame, Muhammed Alatar’s latest production, Jerusalem: East Side Story and many more.</p>
+<p>The festival venue is The Joseph Stone Auditorium, Klipfontein Rd, Athlone, Cape Town.</p>
+<p>For media or other enquiries, please contact:</p>
+<p>Fahrie Hassan or Khalil Amod  021 691 9375 or 083 797 7299<br />e-mail: fahri@channel4.co.za; info@channel4.co.za<br />or for updates visit the festival page at www.channel4.co.za<br />or follow us on facebook.</p>
+<p> </p>

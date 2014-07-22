@@ -1,0 +1,8 @@
+---
+layout: post
+title: Break the Siege on Gaza, Let Them Live with Peace and Dignity
+joomla_id: 1127
+joomla_url: break-the-siege-on-gaza-let-them-live-with-peace-and-dignity
+date: 2010-01-08 00:27:56.000000000 +01:00
+---
+As Israeli F16s attack northern, Western, Southern and Middle Gaza tonight, doing extensive damage, the Palestinians of Gaza are, once again, terrorized by American bombs and Israeli genocidal policies. Viva Palestina is still there, and the Gaza Freedom March has just finished.<br /> <br /> For those of us, Palestinian, International and Israeli who are continuously outraged, we can still make our voices heard. Watch this video and see what happened around the world as supporters marched on December 31, 2009 and January 1, 2010 to demand of their governments, "Break the siege on Gaza, let them live in peace and dignity"<br /> <br /> <a href="http://www.youtube.com/watch?v=u8osR2BtQZs" target="_blank">http://www.youtube.com/watch?<wbr></wbr>v=u8osR2BtQZs</a><br /> <br /> The famous song you hear, <span style="text-decoration: underline;">Va pensiero</span> by Giuseppe Verdi was first performed in 1842 when the Northern part of Italy was under the thumb of the Austrian empire, occupied as Palestine is today. It is a song about the plight of the Jews as they are assaulted, conquered, and subsequently exiled from their homeland by the Babylonian King Nabucco (Nebuchadnezzar).<br /> <br /> The song has become a plaintive cry for freedom for all occupied people and is dedicated to the Palestinian fight for justice, from the Occupied West Bank to besieged Gaza.<br /> <br /> Watch for the Free Gaza announcement of a flotilla of boats going to Gaza in the spring.

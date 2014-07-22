@@ -1,0 +1,20 @@
+---
+layout: post
+title: ! 'Eye witness Gaza 2009: update '
+joomla_id: 850
+joomla_url: eye-witness-gaza-2009-update-
+date: 2009-04-30 10:06:19.000000000 +02:00
+---
+<p> Our two Free Gaza co-ordinators in Gaza have finally been able to exit via the Rafah crossing. <br />Caoimhe Butterly and Ewa Jasiewicz, who both originally travelled to Gaza on siege breaking Free Gaza boats (the second and fourth voyages respectively) have been working closely with partners on the ground in Gaza over the last few months. Ewa was in Gaza throughout the December - January massacres and Caoimhe managed to return to Gaza during the war.</p>
+<p>They will be speaking at meetings in the UK, Poland and Ireland  about Israeli war crimes and working with paramedics, journalist and farmers under fire in Gaza before, during and after the 2009 war.</p>
+<p> </p>
+<p> </p>
+
+<div></div>
+<p>Ewa was in the Beit Lahiya UN school when it was bombed with white phosphorous, and was involved in evacuating dead and injured from the school. She also directly witnessed white <br />phosphoric bomblets rain down onto the school into the yard. Both Ewa and Caoimhe were in densely populated areas when they were bombing them with white phosphorous, as well as <br />witnessing property destruction by F16s and witness to <br />the impact of surveillance plane missiles bombed onto civilians.</p>
+<p><br />The key message that Ewa and Caoimhe will be bringing is that people in Gaza want pressure for political change - particularly through the boycott, divestment and sanctions campaign. The message is that aid work must be accompanied by campaigning to bring about justice and freedom from occupation.</p>
+<p>Both Caoimhe and Ewa will be available for media interviews but will be mainly focussing on speaking to people about what they have seen in Gaza, and acting as a bridge to bring the messages from Palestinians inside Gaza to the outside world. They have developed close links with a number of developing grassroots projects in Gaza and have ideas about links which groups in Europe and elsewhere may want to develop. <br />They will be travelling to Lebanon, Britain, Ireland, Poland, and possibly Germany, Spain and Italy.</p>
+<h6>Current UK schedule:</h6>
+<p>Monday Evening 27th - informal - Bethnal Green Respect mtg 6pm, Labour<br />Left mtg in Parliament with John McDonnell, 7pm <br /><br /><br />Tuesday 28th Brighton - Free Gaza meeting</p>
+<p>Wednesday 29th Leeds - 9am-1pm lecture/seminar session at the<br />School of Geography as part of the MA in Social Change, talking about<br />activism and campaigning in general but with a focus on Palestine and<br />Iraq campaigning work<br /><br />7pm, Public meeting, Peanut Gallery, Leeds University <br /><br /><br />Thurs 30th Free<br /><br />Fri May 1st - Free<br /><br />Sat May 2nd - Anti militarist gathering in Brighton. Surveillance weaponry used in Gaza. <br /><br />Sun May 3rd - 3pm Tea and talk session with 20 community organiser women<br />in Park Royal, West London, organised by Nadia<br /><br />Monday May 4th - Fund raising event: Leighton<br /><br />Tuesday May 5th - Liverpool <br />Evening: Liverpool Hope University: student meeting<br /><br />Wed May 6th: Manchester :<br />Evening ‘Audio Uprising' fundraiser for DEC appeal for Gaza: Club Academy, Manchester<br /><br />Thurs 7th - Rochdale:<br />Evening meeting: United for Justice<br /><br />Friday 8th - London<br />4 p.m. Islamia Girls school, NW London<br />Evening meeting in Harrow<br /><br />Saturday 9th - Daytime - Camden PSC tribunal on Palestine in Russell<br />Square, <br /><br />Sunday 10th - Blackburn<br /><br />Monday 11th - Manchester<br />Evening fundraiser at Saffron Restaurant<br /><br />Tuesday 12th - Bristol (Ewa)<br />Sheffield (Caoimhe)<br /><br />Wednesday 13th - free - Ewa may have to be in Poland from now, but if<br />events in UK happening, will stay on<br /><br />Thursday 14th - free<br /><br />Friday 15th - free<br /><br />Saturday 16th free - Free Palestine Rally, Nakba Day etc<br /><br />Sunday 17th - EWA IN POLAND TIL MAY 27TH</p>
+<p>Contact details (UK) : Ewa Jasiewicz; 07749 421 576</p>

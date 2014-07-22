@@ -1,0 +1,38 @@
+---
+layout: post
+title: ! 'Petition from Gaza: Break the siege, support Freedom Flotilla II'
+joomla_id: 1313
+joomla_url: petition-from-gaza-break-the-siege-support-freedom-flotilla-ii
+date: 2011-06-29 15:32:21.000000000 +02:00
+---
+<p style="margin-top: 10px; margin-right: 0px; margin-bottom: 15px; margin-left: 0px; padding: 0px;"><a href="http://www.petitions24.com/break_the_siege_support_freedom_flotilla_ii">Petition from Gaza: Break the Siege; Support Freedom Flotilla II</a></p>
+<p style="margin-top: 10px; margin-right: 0px; margin-bottom: 15px; margin-left: 0px; padding: 0px;"><span style="line-height: 16px;">Besieged Gaza, Occupied Palestine</span></p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">We Palestinians of Gaza want to live at liberty to meet Palestinian friends or family from Tulkarem, Jerusalem or Nazareth; we want to have the right to travel and move freely. We want to live without fear of another bombing campaign that leaves hundreds of our children dead and many more injured or with cancers from the contamination of Israel’s white phosphorous and chemical warfare. We want to live without the humiliations at Israeli checkpoints or the indignity of not providing for our families because of the unemployment brought about by the economic control and the illegal siege. We are calling for an end to the racism that underpins all this oppression.</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;"><strong>Sign the petition: <a href="http://bit.ly/Gazahurra">http://bit.ly/Gazahurra</a></strong></p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">We ask: when will the world’s countries act according to the basic premise that people should be treated equally, regardless of their origin, ethnicity or colour – is it so far-fetched that a Palestinian child deserves the same human rights as any other child in the world? Will you be able to look back and say you stood on the right side of history or will you have sided with the oppressor?</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">We, therefore, call on the international community to take up its responsibility to protect the Palestinian people from Israel’s heinous aggression, immediately ending the siege with full compensation for the destruction of life and infrastructure visited upon us by this explicit policy of collective punishment. Nothing whatsoever justifies the intentional policies of savagery, including the severing of access to the water and electricity supply to 1.5 million people. The international conspiracy of silence towards the slow genocide taking place against the more than 1.5 million civilians in Gaza, more than 50 per cent of whom are children under the age of 15, indicates complicity in these war crimes.</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">We also call upon all Palestine solidarity groups and all international civil society organizations to demand:</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">- An end to the siege that has been imposed on the Palestinian people in the West Bank and Gaza Strip as a result of their exercise of democratic choice.</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">- The protection of civilian lives and property, as stipulated in International Humanitarian Law and International Human Rights Law such as The Fourth Geneva Convention.</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">- The immediate release of all political prisoners.</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">- That Palestinian refugees in the Gaza Strip be immediately provided with financial and material support to cope with the immense hardship that they are experiencing.</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">- An end to occupation, Apartheid and other war crimes.</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">- Immediate reparations and compensation for all destruction carried out by the Israeli Occupation Forces in the Gaza Strip.</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">-The permanent opening and free movement of Palestinians through the Rafah Crossing</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">-An endorsement of the  Boycott Divest and Sanctions Campaign; join the many International Trade Unions, Universities, Supermarkets and artists and writers who refuse to entertain Apartheid Israel. Speak out for Palestine, for Gaza, and crucially ACT. The time is now.</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;"> </p>
+
+<p> </p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">Palestinian Student’s Campaign for the Academic Boycott of Israel</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">Palestinian Youth against Israeli Apartheid</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">One Democratic State Group</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">General Union for Public Services Workers</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">General Union for Health Services Workers</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">University Teachers' Association</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">Palestinian Congregation for Lawyers</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">General Union for Petrochemical and Gas Workers</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">General Union for Agricultural Workers</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">Union of Women’s Work Committees</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">Union of Synergies—Women Unit</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">Arab Cultural Forum</p>
+<p style="margin-top: 0px; margin-right: 0em; margin-bottom: 15px; margin-left: 0em; line-height: 1.4em; padding: 0px;">Association of Al-Quds Bank for Culture and Info</p>

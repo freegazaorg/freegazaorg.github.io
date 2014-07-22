@@ -1,0 +1,10 @@
+---
+layout: post
+title: IDF lies again about radio transmissions
+joomla_id: 1207
+joomla_url: idf-lies-again-about-radio-transmissions
+date: 2010-06-05 02:32:41.000000000 +02:00
+---
+<p>Radio transmissions released by the IDF which allegedly document provocative and offensive remarks by Mavi Marmara crewmembers are fraudulent according to other members of the Freedom Flotilla.<br /><br />Huwaida Arraf, who was on the Challenger 1, another ship in the convoy, has confirmed that her voice is featured in the recordings of what are said to be transmissions between the Mavi Maramara and the Israeli Navy. In this part of the recording, she can be heard saying, "we have permission from the Gaza Port Authority to enter."<br /> <a href="http://imeu.createsend1.com/t/r/l/ndixr/stdzhyd/y" rel="nofollow" target="_blank"></a></p>
+<p><a href="http://imeu.createsend1.com/t/r/l/ndixr/stdzhyd/y" rel="nofollow" target="_blank"><img align="left" border="0" height="196" width="247" /></a></p>
+<p>Arraf claims that the presence of her voice in the alleged transmissions "proves that the audio has been edited by the IDF and sheds serious doubt on the authenticity of the audio material as a whole, as does the sound and voice quality of the other statements supposedly made by people on the Mavi Marmara."<br /><br />All video and audio taken by journalists and passengers on the night of the flotilla raid has been confiscated by Israel, which is only releasing highly edited segments to the media.<br /> <span style="font-family: Times New Roman,Times,serif; font-size: small;"><a href="http://imeu.createsend1.com/t/r/l/ndixr/stdzhyd/j" rel="nofollow" target="_blank">The Institute for Middle East Understanding</a> can connect you to Huwaida Arraf or Adam Shapiro of the Free Gaza Movement for further comment and analysis. </span><br /> <span style="font-family: Times New Roman,Times,serif; font-size: small;">Call (646) 824-7982 or email <a href="mailto:ismail@imeu.net" target="_blank">ismail@imeu.net</a>.</span><br /> <br /> Sincerely,</p>

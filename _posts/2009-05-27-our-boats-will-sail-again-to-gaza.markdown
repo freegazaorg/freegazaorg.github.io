@@ -1,0 +1,17 @@
+---
+layout: post
+title: Our boats will sail again to Gaza
+joomla_id: 890
+joomla_url: our-boats-will-sail-again-to-gaza
+date: 2009-05-27 14:56:31.000000000 +02:00
+---
+In August 2008 history was made when our two little boats, FREE GAZA and LIBERTY, sailed to Gaza to break Israel's occupation and blockade that had condemned 1.5 million Palestinians to decades of poverty, hunger, humiliation, death and destruction.
+<p>Since then, until it was attacked and destroyed by Israeli naval gunboats in late December, our boat DIGNITY completed four more successful voyages, carrying journalists, medical personnel, parliamentarians and human rights advocates to Gaza.  We also brought out of Gaza aboard our boats several dozen Palestinians, including students whom Israel had prevented from leaving to attend international universities, patients  needing medical treatment not available in Gaza due to the siege, and others we were able to reunite with families outside of Gaza.</p>
+<p>
+
+</p>
+<p>When DIGNITY was rammed by the Israeli navy, it was carrying doctors and medical supplies needed desperately to help Gaza medical personnel provide emergency care for hundreds of victims of Israel's invasion.   Some of these doctors and journalists were able to cross into Gaza via Egypt, but others returned to their home countries, devastated that Israel had prevented them from using their skills to save lives and report on the horrors that continued for several weeks against a defenseless civilian population.   Several members of our Free Gaza movement who had sailed on our boats were on the ground in Gaza throughout the Israeli offensive, helping families and medical personnel, and sending eyewitness reports and videos to the world outside.</p>
+<p>Boats carrying humanitarian and medical supplies sent from other countries were intercepted by Israel in international waters and prevented from reaching Gaza.</p>
+<p>While grieving the loss of our beloved DIGNITY, we were encouraged to see that the Rafah border was allowing some groups and individuals, such as CODE PINK and VIVA PALESTINA, to cross into Gaza, and we were optimistic that others would follow until the Rafah border would finally be removed permanently.  It appears now that Israel and Egypt have once again decided to close the gate to Gaza, turning away hundreds of international citizens seeking to visit and bring aid to a population in crisis after suffering through years of sanctions followed by a brutal and devastating military attack.  Doctors are being denied access to patients they treated during the invasion.   Thousands of people are still homeless, as Israel continues to deny them the materials and tools needed to rebuild their houses and schools.</p>
+<p>Free Gaza cannot and will not allow Israel to stop our boats from reaching our friends in Gaza.  With its mighty military machine, financed by US taxpayers, Israel has flexed its muscles and attacked unarmed civilians who had the audacity to challenge its inhuman blockade of Gaza and its people.  We will not be stopped.  We will get more boats, and we will sail again and again, delivering supplies and materials to help the people survive and rebuild their homes and their lives.</p>
+<p>Before we sailed away from Gaza last August we promised our Palestinian friends that we would never forget them and we would never abandon them.  It's a promise we intend to keep.</p>

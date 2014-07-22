@@ -1,0 +1,16 @@
+---
+layout: post
+title: This is a cease fire?
+joomla_id: 1406
+joomla_url: this-is-a-cease-fire
+date: 2013-01-21 23:32:46.000000000 +01:00
+---
+<p>Khuza'a, Gaza Strip: For the last hour I've been able to see from my appartment window small  fishing boats close in to shore being harrassed by an Israeli gunboat. Every so often, one of them is picked out by a strong searchlight and  circled.  They are to the north of Gaza City but clearly this side of  the border some distance south of the Israeli gas platforms which now  line the sea border between Palestinian Gaza and Israel.</p>
+<div></div>
+<div></div>
+<div>I hope that they all manage to come back to port safely. Theresa McDermott</div>
+<div></div>
+<div></div>
+<div></div>
+<br />
+<div><span lang="EN-US"> At about 8.30pm on Tuesday 15th January, Israeli tanks and military bulldozers breached the border adjacent to the village of Khuza'a, east of Khan Younis and intruded inside the Gaza Strip. The incursion into Palestinian farmland continued through the night and added to the long list of Israeli ceasefire violations.<br /> <br /> Heavy shooting was reported during the assault but fortunately there were no injuries on this occasion. Also, explosions were heard but no homes were damaged. Terrified locals contacted the International Committee of the Red Cross but were told that the Israeli military wouldn't listen to anyone.<br /> <br /> The raid continued on the night of Wednesday 16th January, when Apache helicopters were reported to have also been deployed. Then, on Thursday 17th January, the Israeli military aggression continued in the area for a third consecutive night.<br /> <br /> A large swathe of agricultural land was damaged, about eight kilometres along the border fence and about 250 metres back from it. Within this area about 300 dumuns were razed, including wheat crops planted in December. Fields belonging to about 500 different farmers were affected, according to local officials. Farmers have attempted to approach their lands since the attack but haven't been able to reach land closer than 100 metres from the fence.<br /> <br /> The mayor of Khuza'a, Kamal Al-Najar, explained that 800 of the 2,000 dunums of agricultural land in Khuza'a is close to the border fence and wasn't accessible prior to Israel's eight-day offensive on Gaza in November. At that time, farmers in Khuza'a had only been able to access their lands which lay half a kilometre or more from the border fence.<br /> <br /> Since the ceasefire announcement, they have accessed land 300 metres from the fence and had managed to cultivate about 400 dunums within that area for the first time in ten years. However, most of this has now been destroyed in last week's attack. Over the course of the last ten years, the Israeli military has destroyed olive and citrus groves, greenhouses and water pumping facilities in the border areas. Orange Jenny<br /> <br /> Photos courtesy of Desde Palestina:<br /> </span><a href="http://desde-palestina.blogspot.com/2013/01/bulldozed-farmland-in-khuzaa.html?m=1" target="_blank"><span lang="EN-US">http://desde-palestina.<wbr></wbr>blogspot.com/2013/01/<wbr></wbr>bulldozed-farmland-in-khuzaa.<wbr></wbr>html?m=1</span></a></div>

@@ -1,0 +1,8 @@
+---
+layout: post
+title: SS FREE GAZA & SS LIBERTY ON INTERNATIONAL WATERS ON WAY TO CYPRUS
+joomla_id: 411
+joomla_url: ss-free-gaza-and-ss-liberty-on-international-waters-on-way-to-cyprus
+date: 2008-08-28 12:41:28.000000000 +02:00
+---
+The SS Free Gaza and SS Liberty left port in Gaza at 3:40 PM, and have begun their long voyage back to Cyprus. Aboard the ship are seven Palestinian passengers, including several children. We were able to speak with Paul Larudee on the SS Liberty just a few minutes ago:<br /><br />&quot;We're a little over an hour into our return trip to Cyprus and, unlike when we came in, there are several Israeli naval vessels in sight. We seem to be the focus of their activity, the center of their attention so to speak. However they're keeping a careful distance, not really approaching us. We expect to reach the twelve-mile limit around 7 PM this evening, and then cross over into international waters.<br /><br />&quot;When we arrived in Gaza last Saturday, it was the first time in forty-one years that anyone has freely entered Gaza. But our leaving is in a way even more significant. Last Saturday, two of our Palestinian members came into Gaza on these boats. Today, seven more Palestinians are leaving with them. They got exit stamps from the Palestinian government, they boarded the ships, and soon they'll be in international waters, and then in Cyprus. This is the first time, ever, that Palestinians have been able to freely enter and leave their own country. It's an incredible step forward, and a sign of greater things to come.&quot;<br /><br />--Paul Larudee, aboard the SS Liberty, freely leaving Gaza.<p><a href=""></a></p>

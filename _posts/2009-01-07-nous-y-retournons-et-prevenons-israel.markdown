@@ -1,0 +1,14 @@
+---
+layout: post
+title: Nous y retournons et prévenons Israel
+joomla_id: 651
+joomla_url: nous-y-retournons-et-prevenons-israel
+date: 2009-01-07 20:08:15.000000000 +01:00
+---
+
+ 
+<p>[Larnaca, Chipre] Aujourd'hui, le "Free Gaza Movement" avertit Israel qu'un autre bateau de secours va partir pour Gaza. Nous annoncerons la date exacte du départ et l'itinéraire d'ici quelques jours. Nous naviguerons dans les eaux Chypriotes, puis nous passerons dans les eaux internationales, et de là, directement dans les eaux territoriales de Gaza, sans nous approcher, à aucun moment des eaux israéliennes.</p>
+<p>Les attaques israéliennes en cours dans la Bande de Gaza ont tué plus de 640 Palestiniens, dont beaucoup sont des femmes et des enfants, et en ont blessé des milliers. Ces actes, accomplis par Israel, sont de graves et massives violations de la loi internationale humanitaire telle qu'elle est définie par les Conventions de Genève, tant du point de vue des obligations d'une puissance occupante que des lois de la guerre.</p>
+<p>Les Nations Unies n'ont pas réussi à protéger la population civile palestinienne des violations massives de la loi humanitaire internationale. C'est pourquoi, nous, citoyens indignés, de Belgique, Colombie, France, Canada, Grande-Bretagne, Grèce, Irlande, Jordanie, Koweit, Ecosse, Espagne et Etats-Unis, sentons qu'il est de notre devoir moral d'essayer de le faire.</p>
+<p> Lors d'une tentative précédente pour envoyer un bateau de secours avec médecins et matériel médical à Gaza, le Free Gaza Movement a été violemment attaqué par les militaires israéliens. A l'aube du mardi 30 décembre, la marine de guerre israélienne a éperonné notre bateau, le DIGNITY, dans les eaux internationales. Ni le DIGNITY ni ses passagers ni l'équipage ne constituaient un quelconque danger pour Israel, et le gouvernement israélien avait été averti de la mission du bateau, la veille. Pourtant, nous avons été percutés violemment, par trois fois, sur l'un des côtés, sans aucun avertissement de la marine de guerre israélienne, dans une tentative évidente de rendre le bateau inutilisable, mettant en danger la vie des 16 passagers à son bord.   La violence des militaires israéliens ne va pas nous dissuader et nous risquerons encore et souvent la traversée jusqu'à Gaza. Nous sommes médecins, journalistes, parlementaires et observateurs du respect des droits humains, qui tentons de rejoindre la population de Gaza, pour apporter l'aide médicale plus que nécessaire et pour témoigner des atrocités commises là-bas à l'encontre des Palestiniens.</p>
+<p>Nous sommes prêts à mettre notre vie en danger pour arrêter le massacre illégal des Palestiniens par Israel (nous avons reçu des menaces de mort pour nous empêcher de continuer) et attirer l'attention du monde sur les crimes de guerre qui sont perpétrés à Gaza contre 1.5 millions de Palestiniens.</p>

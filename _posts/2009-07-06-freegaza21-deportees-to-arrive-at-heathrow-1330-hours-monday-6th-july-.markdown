@@ -1,0 +1,15 @@
+---
+layout: post
+title: ! '‘Freegaza21’ deportees to arrive at Heathrow 13.30 hours  Monday 6th July’ '
+joomla_id: 997
+joomla_url: freegaza21-deportees-to-arrive-at-heathrow-1330-hours-monday-6th-july-
+date: 2009-07-06 06:29:44.000000000 +02:00
+---
+<p>‘<strong>Freegaza21' deportees to arrive at Heathrow 13.30 hours Monday 6th July' <br /></strong><br />On Sunday 5th July the six British crew and passengers of the Spirit of Humanity were moved to detention cells at Ben Gurion Airport, following a court hearing at which the orders for their deportation from Israel were made. The captain of the Spirit, Denis Healey, and the other five British human rights activists, are expected to be put on El Al flight LY315, from Tel Aviv, tomorrow, Monday 6th July 2009, due to arrive at Terminal One, Heathrow at 13.30 p.m.</p>
+<p>Press are invited to meet the six deported British passengers of the Free Gaza boat: today at<br />Terminal One: Arriving at Heathrow at 13.35 hours.<br />Press conference: 16.00 (4 p.m.)- Today, 6th July at the Renaissance Hotel, Bath Rd. Heathrow TW6 2AQ</p>
+<p> </p>
+
+<br />Friends and family of the six are travelling to Heathrow airport to welcome them and to hear for the first time direct accounts of the forcible boarding by Israel of the Spirit of Humanity, which carried aid and reconstruction supplies, as it travelled from Cyprus towards the port of Gaza on June 30th 2009. <br />Two of the British deportees, were on board the first Free Gaza boat which, in August 2008, became the first international boat to sail to Gaza in forty two years, since the Israeli occupation of the Gaza Strip began. The Spirit's captain also captained the Free Gaza boat the Dignity, which was rammed by Israeli warships during a previous attempt to reach Gaza in December 2008. The deportees also include documentary film maker Ishmahil Blagrove, Director of the film Blood Diamonds. Ishmahil was travelling to Gaza to film the lives of the Palestinian people under siege. Theresa Macdermott, Alex Harrison and Aide Mormesh all planned to remain in Gaza to undertake human rights monitoring and to report on the impact of the continuing blockade. <br />Once we have confirmation that they are on the morning flight, this will be posted on the Free Gaza movement's website: www.freegaza.org <br />Free Gaza plan to hold a press conference in London as soon as possible after their safe arrival. Press release regarding press conference details to follow and will be posted on the website. <br /><a href="http://www.freegaza.org">www.freegaza.org</a>  <br />Hilary Smith (UK Free Gaza coordinator) 07818040982 <a>/hils4gaza@freegaza.org</a>  
+<div></div>
+<p>Greta Berlin (English)tel: +357 99 28 41 02/ <a href="mailto:friends@freegaza.org">friends@freegaza.org</a>  <br />Ramzi Kysia (English)Tel: + 357 99 08 17 67 <a href="mailto:rrkysia@yahoo.com">rrkysia@yahoo.com</a>   <br />Caoimhe Butterly (Arabic/English/Spanish):tel: +357 99 80 96 37 / <a href="mailto:sahara78@hotmail.co.uk">sahara78@hotmail.co.uk</a>  </p>
+<p> </p>

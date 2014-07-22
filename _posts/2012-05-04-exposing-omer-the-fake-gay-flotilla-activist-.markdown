@@ -1,0 +1,22 @@
+---
+layout: post
+title: ! 'Outing Omer: The Fake Gay “Flotilla Activist” '
+joomla_id: 1354
+joomla_url: exposing-omer-the-fake-gay-flotilla-activist-
+date: 2012-05-04 11:41:08.000000000 +02:00
+---
+<p>FOR IMMEDIATE RELEASE</p>
+<p>(London, May 4, 2012) Last summer, “Om<ins datetime="2012-05-04T11:43">e</ins><del datetime="2012-05-04T11:43"></del>r” posted a video saying he had been turned down as a passenger on board one of Free Gaza’s boats because he is gay. Within a few days, he was discovered to be a fake, apparently recording his statement coordinated with the Israeli government press office.</p>
+<p>Yesterday, Jon Ronson from the Guardian, followed up on this story. “Om<ins datetime="2012-05-04T11:44">e</ins><del datetime="2012-05-04T11:44"></del>r” (who turned out to be an Israeli actor named Mark and had no network of gays and lesbians) again spun his explanation about sending an email to us, then calling us on the phone. As he was pressed, he became more and more confused about the facts.</p>
+<p>Like all good journalists, Mr.<a href="http://www.guardian.co.uk/commentisfree/video/2012/may/03/jon-ronson-finding-omar-video?commentpage=1#start-of-comments" target="_blank"> Ronson</a> had already followed up, asking us if we had ever heard from this man,</p>
+<p>Our colleague, Alex, running the London office was contacted. “We have never received an email or a phone call from this man, and we would not have refused his application,” she stated.</p>
+<p>The only criteria we have for passengers is that they sign our <a href="http://goog_103963617/" target="_blank">points of unity</a><ins datetime="2012-05-04T10:48">.</ins> We have welcomed members of <del datetime="2012-05-04T10:48"></del>the LGBT community <del datetime="2012-05-04T10:48"></del><ins datetime="2012-05-04T10:48"></ins>on board our boats over the years, and they have been welcomed in Gaza.</p>
+<p>More importantly, the Free Gaza movement sees this story, made up by an Israeli actor, as another attempt to ‘pinkwash’ the occupation of Palestine,</p>
+<p>Last year, the<ins datetime="2012-05-04T11:31"> </ins>Tel Aviv tourism board spent $90 million to brand the city as “an international gay vacation destination. Their massive PR efforts are a deliberate strategy to conceal the continuing violations of Palestinians’ human rights behind an image of an open society signified by Israeli gay life.<ins datetime="2012-05-04T10:48"></ins></p>
+<p>According to <del datetime="2012-05-04T11:32"></del>Aeyal Gross, a professor of law at Tel Aviv University, “Gay rights have essentially become a public-relations tool,” even though “conservative and especially religious politicians in Israel remain fiercely <a href="http://www.nytimes.com/2011/11/23/opinion/pinkwashing-and-israels-use-of-gays-as-a-messaging-tool.html" target="_blank">homophobic</a>.”<ins datetime="2012-05-04T11:32"></ins><ins datetime="2012-05-04T11:32"></ins></p>
+<p>Pinkwashing not only ignores the hard-won gains of Israel’s gay community, it denies the existence of the emerging Palestinian gay movement, with three major organizations: <a href="http://www.aswatgroup.org/content/who-we-are" target="_blank">Aswat</a>, <a href="http://www.alqaws.org/q/content/community-building" target="_blank">Al Qaws</a> and Palestinian Queers for Boycott, Divestment and Sanctions. These groups clearly state the oppression of Palestinians crosses the boundary of sexuality.<ins datetime="2012-05-04T11:37"> </ins><del datetime="2012-05-04T11:37"></del></p>
+<p>As Haneen Maikay, the director of Al Qaws, has said, “When you go through a checkpoint it does not matter what the sexuality of the soldier is.”<ins datetime="2012-05-04T11:37"></ins></p>
+<p>Our criteria for passengers have always been their desire to advocate for the rights of Palestinians in the occupied West Bank and the illegally blockaded Gaza <ins datetime="2012-05-04T11:40">S</ins><del datetime="2012-05-04T11:40"></del>trip. And passengers have included Christians, Muslims, Jews, as well as member<ins datetime="2012-05-04T11:41">s</ins> of the LGBT community and people from over 34 countries. <del datetime="2012-05-04T11:40"></del><del datetime="2012-05-04T11:40"></del></p>
+<p>Contact: Audrey Bomse 44 (0)7861560932.</p>
+<p>Ewa Jasiewicz 44 (0<span style="color: #000000;">) <a href="tel:7749%20421%20576" value="+17749421576" target="_blank">7749 421 576</a></span></p>
+<span style="color: #000000;"> Greta Berlin 33 (0) 607 374 512<br clear="all" /></span> <br />

@@ -1,0 +1,11 @@
+---
+layout: post
+title: ! '"Freedom Sailors" is being attacked'
+joomla_id: 1364
+joomla_url: qfreedom-sailorsq-is-being-attacked
+date: 2012-09-01 07:55:15.000000000 +02:00
+---
+<p data-ft="{"><span data-ft="{"><span>Our book,<em> Freedom Sailors,</em> is under attack by Zionists from several Facebook Israel-First pages. The message below is what was posted.<br /></span></span></p>
+<p data-ft="{"><span data-ft="{"><span>"Cliff Pinto **IMPORTANT** PHILIPPE ASSOULINE'S REVIEW OF GRETA BERLIN'S BOOK IS  LIVE. I NEED ** EVERYONE** TO PLEASE GO AND CLICK THAT IT IS "HELPFUL"  -- IF YOU CAN ADD YOUR OWN REVIEW --AS NUMBERS ARE WHAT COUNT HERE-- IT  WOULD BE EVEN MORE HELPFUL. THE MORE CLICK "HELPFUL" THE HIGHER THE  VISIBILITY. PLEASE OPEN ACCOUNTS IF YOU MUST.<br /> <br /> ALSO, PLEASE MAKE SURE THAT YOU GET ON THERE AND CLICK NO THAT IT WASN'T HELPFUL ON ALL THE POSITIVE REVIEWS ON THE SITE."</span></span></p>
+<p data-ft="{"><span data-ft="{"><span>It is important that you go to Amazon and read the reviews,  even if you don't have an account. </span></span><span data-ft="{"><span>They are obviously afraid of  the messages in the book, they have not read the book, they don't  realize that the book is written by 24 people, including two Israelis,  and they have become the 'one-star wonders' on Amazon. </span></span></p>
+<p data-ft="{"><span data-ft="{"><span>You can read them at <a href="http://www.amazon.com/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894/ref=sr_1_11?ie=UTF8&qid=1344813919&sr=8-11&keywords=freedom+sailors" target="_blank" rel="nofollow nofollow"><span>http://www.amazon.com/</span><wbr></wbr><span></span><span>Freedom-Sailors-movement-succee</span><wbr></wbr><span></span><span>ded-ourselves/dp/0615654894/</span><wbr></wbr><span></span><span>ref=sr_1_11?ie=UTF8&qid=1344813</span><wbr></wbr><span></span><span>919&sr=8-11&keywords=freedom+s</span><wbr></wbr><span></span>ailors</a><br /> <br /> There are several things you can do. Buy the book and read it. It's a  wonderful book. Show the Zionists that we have much more power than they  do. Write a review on Amazon if you have an account (AFTER you have read  the book). Click NO and ABUSE on the negative reviews. You don't need  an account to do that. Then spread this message and the screen shot to  everyone you know. Thank you. Greta.</span></span></p>

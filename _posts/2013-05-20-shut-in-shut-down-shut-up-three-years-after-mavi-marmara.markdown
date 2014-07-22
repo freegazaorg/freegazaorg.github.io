@@ -1,0 +1,59 @@
+---
+layout: post
+title: ! 'Shut In, Shut Down, Shut Up: Three Years after Mavi Marmara'
+joomla_id: 1416
+joomla_url: shut-in-shut-down-shut-up-three-years-after-mavi-marmara
+date: 2013-05-20 12:39:08.000000000 +02:00
+---
+<p style="text-align: left;">May 20, 2013</p>
+<p>Three years ago, the Free Gaza movement was wrapping up final preparations for a flotilla of eight ships to head out to Gaza, determined to break Israel’s illegal siege on 1.5 million Palestinians shut into an open-air prison. Most of us were already in Cyprus or Turkey or Greece, as we were the primary organizers, having already sent eight voyages, five of them successful in 2008.</p>
+<p>Why a flotilla of boats?</p>
+<p>During Israel’s horrific massacres against the people of Gaza (called Operation Cast Lead) in December 2008/January, 2009, our boat, the DIGNITY, had been rammed off the coast of Lebanon as we were taking medical personnel into Gaza. The boat later sank in a storm off the coast of Cyprus.</p>
+<p><a href="http://www.youtube.com/watch?v=9iTfq-QMEHw">http://www.youtube.com/watch?v=9iTfq-QMEHw</a></p>
+<p>Then, in July 2009, Israel brutally attacked the “Spirit of Humanity,” even though Nobel Peace Laureate, Mairead Maguire, and former Congresswoman, Cynthia McKinney were on board. The Israeli government stole the boat, threw passengers into Israeli prison and, laughably, deported them eight days later, because “passengers had illegally entered Israel.” It was the first time the Israeli commandoes had actually boarded one of the boats as opposed to ramming them or trying to sink them. <a href="http://www.ricenpeas.com/2009/July/cynthia_mckinney_intvw.html">http://www.ricenpeas.com/2009/July/cynthia_mckinney_intvw.html</a></p>
+<p>We realized a new approach would have to be designed, one that would include more vessels, more passengers and more media exposure to the brutal closure of Gaza. Sailing one boat at a time was not going to get the message out to the world that Israel was blockading the people of Gaza and committing crimes against humanity.</p>
+<p>It took Free Gaza a year to organize. We traveled to Sweden, Norway, France, Turkey, Greece, many Middle Eastern countries, Tunisia, Spain, Malaysia, the UK, the US and Germany. We helped Palestinian support groups raise money and send out the message that the next voyage would have to be organized with worldwide support. We succeeded beyond our wildest imagination, as organizations and individuals got on board the mission, raised money from people around the world, and bought the boats… eight in all, from the boats purchased by the Turkish charity, IHH, to the boats ready to go from Greece, Sweden, Ireland, Malaysia and the U.S.</p>
+<p>Our own boats, Challenger 1 and Challenger 2 plus the cargo ship, the Rachel Corrie, were on their way to the meting place off the coast of Cyprus. The Rachel Corrie, bought with money from a charity in Malaysia, <a href="http://www.counterpunch.org/2010/05/18/gaza-fever/">http://www.counterpunch.org/2010/05/18/gaza-fever/</a> had finally left Ireland, its propeller pin suspiciously dropping out just days before leaving, causing the ship to be delayed for days. Had the final inspection not caught the problem, the propeller would have flown off, damaging the boat and putting the passengers and cargo at risk. The Rachel Corrie would not make it in time to join the flotilla but would try to get into Gaza five days later, only to be boarded by Israeli commandos, the passengers brutalized and left in the sun, then thrown into prison.</p>
+<p>
+
+</p>
+<p>The six of us in the media office in Cyprus were fielding calls, trying to keep track of passengers and where they were going to board…and also trying to pacify the Cypriot authorities, who were no longer willing to have our boats leaving their shores… too much Israeli money had come into Cypriot departments over the year, and the doors that had been so welcoming to us, were beginning to close.</p>
+<p>As the boats headed out to the meeting place, our two yachts were suddenly dead in the water, clearly a result of sabotage, as the Israelis bragged about it.</p>
+<p><a href="http://www.thefreelibrary.com/Free+Gaza%3A+Sabotage+on+the+High+Sea.-a0228150005">http://www.thefreelibrary.com/Free+Gaza%3A+Sabotage+on+the+High+Sea.-a0228150005</a></p>
+<p><a href="http://www.guardian.co.uk/world/2010/jun/01/israel-gaza-flotilla-sabotage-suspected">http://www.guardian.co.uk/world/2010/jun/01/israel-gaza-flotilla-sabotage-suspected</a></p>
+<p>After the pin had come out of the Rachel Corrie propeller, it was obvious that one way Israel was going to shut down the flotilla was to make sure boats never left port (during Freedom Flotilla II in 2011, that’s exactly what Israel accomplished, thanks to outsourcing the occupation to Greece and shutting down the entire flotilla of nine boats).</p>
+<p>Now, both of our yachts had the same gasoline problem at the same time in the middle of the Mediterranean. One was never able to join the flotilla (after taking months to repair, it finally became the Irish ship, Saoirse, that sailed with the Canadian boat, the Tahrir and was violently boarded in November, 2011 by Israeli commandos who tried to sink them with water canons). <a href="http://www.michaelmoore.com/words/mike-friends-blog/israeli-hijacking-gaza-freedom-waves-boats-violent-and-dangerous">http://www.michaelmoore.com/words/mike-friends-blog/israeli-hijacking-gaza-freedom-waves-boats-violent-and-dangerous</a></p>
+<p>We could not have imagined in the days running up to the murderous attacks on our passengers on May 31, 2010 that the Israeli government, in spite of ordering the ramming of the DIGNITY and the vicious boarding of the SPIRIT OF HUMANITY, they would actually send armed commandos onto all six boats, beating up many passengers, wounding over 50 of them, and murdering nine, all while the boats were in international waters.</p>
+<p>Shutting us up</p>
+<p>In an attempt since then to make the attackers look as though they are the victims, the Israeli PR machine has been working overtime to spin the story. Here are just three of the many lies told by PR shill, Mark Regev and top Israeli military men.</p>
+<p><a href="http://www.loonwatch.com/tag/mark-regev/">http://www.loonwatch.com/tag/mark-regev/</a></p>
+<ol>
+<li>The flotilla was Turkish or was run by the IHH and was full of Turkish jihadists.</li>
+</ol>
+<p>The flotilla was organized and run by the Free Gaza movement with help by every initiative that joined, from IHH to the Swedes to the Irish to the Malaysians. We were all members of civil society who were protesting at Israel’s brutal behavior regarding the Palestinians, and we took no money from governments. All money was raised through donations from average people outraged over Israel’s behavior.</p>
+<p>In fact, we had an international passenger list of over 600. Turkey made up half of the passenger list. Australia 3; Azerbaijan 2; Italy 6; Indonesia 12; Ireland 9; Algeria 28; United States 12; Bulgaria 2; Bosnia 1; Bahrain 4; Belgium 5; Germany 11; South Africa 1; Holland 2; United Kingdom 31; Greece 38; Jordan 30; Kuwait 15; Lebanon 3; Mauritania 3; Malaysia 11; Egypt 3; Israel 6: Macedonia 3; Morocco 7; Norway 3; New Zealand 1; Syria 3; Serbia 1; Oman 1; Pakistan 3; Czech Republic 4; France 9; Kosovo 1; Canada 1; Sweden 11; Turkey 380; Yemen 4.</p>
+<p>Every one of these passengers had filled out an extensive application. Although Free Gaza was not responsible for the Turkish passengers, they used our application process. Every person who boarded every boat was searched. Even one of the crewmembers on board the Mavi Marmara had to relinquish his Swiss army knife.</p>
+<ol>
+<li>Passengers attacked heavily armed Israeli commandos, forcing them to shoot in self-defense. </li>
+</ol>
+<p>Passengers on all six boats testified to being beaten, their bones broken, and most of them tied up on ships that were on the water, a direct violation of maritime law and the treatment of civilians. <a href="http://www.freegaza.org/boat-trips/survivor-testimonies.html">http://www.freegaza.org/boat-trips/survivor-testimonies.html</a></p>
+<p>As the UNHCR report clearly states, of the nine passengers who were murdered on board the Mavi Marmara, six of them were assassinated, none of them had weapons. In fact, the only weapon in their hands was a camera. <a href="http://www2.ohchr.org/english/bodies/hrcouncil/docs/15session/A.HRC.15.21_en.pdf">http://www2.ohchr.org/english/bodies/hrcouncil/docs/15session/A.HRC.15.21_en.pdf</a></p>
+<p>Even the whitewashing Palmer report, a panel set up to counter what UNHRC had issued and co-chaired by that famous human rights abuser from Columbia, Uribe, reluctantly concluded that Israel overreacted. Their finding that the blockade was legal has no standing according to many maritime lawyers (there were none on the panel), since they were only tasked to mend relations with Turkey, something they failed abysmally to do.</p>
+<p><a href="http://www.counterpunch.org/2011/09/14/why-the-palmer-report-deserves-no-deference/">http://www.counterpunch.org/2011/09/14/why-the-palmer-report-deserves-no-deference/</a></p>
+<ol>
+<li>Israel ‘kindly offered’ to take the supplies loaded on the boats and transfer them to Gaza.</li>
+</ol>
+<p>First of all, our missions have never been about delivering supplies. They have always been about breaking Israel’s illegal siege on Gaza. We took in supplies, because we could, and because we often loaded the boats with medical equipment and construction equipment that Israel refused to allow into the besieged enclave.</p>
+<p>Second, there is no method of transporting anything from Ashdod to Gaza. It is a seaport with no facilities for transporting 10,000 tons of supplies that were on board the boats. Free Gaza’s lawyers and representatives in Israel spent months working on getting the supplies from the Rachel Corrie into Gaza. When they finally were delivered, the battery operated wheelchairs were minus the batteries, as Israel determined they might be used to make rockets, the same reasoning they gave to us on the first trip about hearing aid batteries.</p>
+<p>Third, every piece of cargo, every piece of equipment and every supply that was going to Gaza had already been inspected at the point of departure. That’s the way it’s supposed to be handled, not by some paranoid country that thinks it can break all the conventions of the sea and demand that cargo that was already inspected get hauled into its port. Imagine what a mess it would be if every country in the world decided they had the right to inspect cargo coming in from every other country. It’s what cargo manifests and inspectors are for.</p>
+<p>Those three constant lies have been trotted out at every opportunity to shut up the activists and prevent additional voyages. It has not stopped us, as evidenced by the most recent initiative, sailing a boat out of Gaza <a href="http://www.gazaark.org">www.gazaark.org</a>, nor will it stop us from continuing to hold Israel accountable for the wellbeing of the people it occupies.</p>
+<p>The best news on this, the third anniversary of the murders of eight Turks and one American, is that the ICC is going to consider the complaint from Cormoros Islands, the country where the Mavi Marmara was flagged.</p>
+<p><a href="http://www.freegaza.org/en/home/56-news/1415-icc-prosecutor-receives-referral-from-comoros-regarding-mavi-marmara.html">http://www.freegaza.org/en/home/56-news/1415-icc-prosecutor-receives-referral-from-comoros-regarding-mavi-marmara.html</a></p>
+<p>In an attempt to shut in the people of Gaza, shut down the voyages and shut up the people who advocate for freedom of movement for the 1.5 million people imprisoned there, the Israelis have failed…. Miserably.</p>
+<p> </p>
+<p> </p>
+<p> </p>
+<p> </p>
+<p> </p>
+<p> </p>
+<p> </p>

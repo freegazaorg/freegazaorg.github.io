@@ -1,0 +1,35 @@
+---
+layout: post
+title: ! 'Canadians face two months of incarceration in Israel without trial '
+joomla_id: 1340
+joomla_url: canadians-face-two-months-of-incarceration-in-israel-without-trial-
+date: 2011-11-09 08:18:18.000000000 +01:00
+---
+<span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">For Immediate Release – Wednesday, November 9, 2011</span>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">For more information:</span></p>
+<div>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">English inquiries:</span> Wendy Goldsmith, Canadian Boat to Gaza, <a href="tel:519-619-6766" value="+15196196766" target="_blank">519-619-6766</a></p>
+<span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;"> </span>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">Dylan Penner, Canadian Boat to Gaza, <a href="tel:613-859-6996" value="+16138596996" target="_blank">613-859-6996</a></span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">French inquiries:</span> Denis Kosseim, Canadian Boat to Gaza, <a href="tel:514-923-5594" value="+15149235594" target="_blank">514-923-5594</a></p>
+<span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;"> </span></div>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;"> Yesterday, Freedom Waves to Gaza activists      <span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">detained in Israel</span> – including Canadians David Heap and Ehab Lotayef – came before a  judge and were told they could be held in prison for 2 months without  charges or trial. </span></p>
+<div>
+<div>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">To avoid this, the judge told them, they must sign a statement that they entered Israel ‘voluntarily’ and 'illegally’</span> <span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">despite  being violently kidnapped from international waters and taken to Israel  against their will while trying to reach Gaza. While a handful of  Freedom Waves to Gaza participants have been deported – including  Canadian Karen DeVito – 18 activists and journalists have now been in  Israeli prison for 5 days with no end in sight. DeVito is available for  interviews.</span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">The  Israeli military forcibly commandeered the boats Tahrir and  MV Saoirse that journalists and activists were travelling on as part of  the Freedom Waves initiative and brought them to Ashdod port in Israel.</span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">American  journalist Jihan Hafiz was on the Canadian boat Tahrir, and was among  those detained by Israel despite her press credentials. Israeli  authorities ordered her and others not to talk about “anything negative  or political” during their brief phone calls to home from Israeli  detention. This censorship explains why some details are only just  coming out now. She reported Tuesday about her experience during the  Israeli takeover of the Irish and Canadian boats:</span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">“There  were three warships [...] four Zodiacs, four water cannon boats, as  well as four regular gunboats. All of the commandos on all of these  boats were heavily armed. It looked like they were taking on an army of a  foreign country.”</span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">She  added: “Two water cannons started to pour lots of water into the Irish  boat, which flooded it, blew their sockets, and cut off all the  electricity. And so, at that point, the Irish delegates I spoke to said  they told the Israeli army, ‘We’re taking on water. We’re sinking. We’re  going to go down at sea if you continue with the water.’"</span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">Hafiz  went on to describe the violent takeover during which guns were pointed  at the heads of the boats’ passengers, how they were roughed up,  mistreated, strip-searched, and filmed naked. She also tells of how the  journalists’ equipment was confiscated, in a bid to silence any  reporting that might contradict the sanitized Israeli account of what  happened during the hijacking of the Tahrir and the MV Saoirse.</span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;"> For the full video interview and transcript, see:     <a href="http://www.democracynow.org/2011/11/8/israel_deports_democracy_now_correspondent_jihan" target="_blank">http://www.democracynow.org/<wbr></wbr>2011/11/8/israel_deports_<wbr></wbr>democracy_now_correspondent_<wbr></wbr>jihan</a> </span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;"> “Our friends have          been          assaulted, tasered, beaten, kidnapped, robbed, and imprisoned. Now  Israel is threatening to illegally detain them for two months. What is  it going to take for the Canadian government to actually do something  about another country kidnapping Canadian citizens and refusing to let  them go?” demands Wendy Goldsmith, an organizer with the Canadian Boat  to Gaza. </span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">“We  are disappointed, but not surprised, by the inaction of Baird and  Harper,” said Canadian Boat to Gaza organizer Dylan Penner. “In its  failure to speak out against Israel’s blockade of Gaza, the Canadian  Government is condoning Israel’s disregard for the human rights of the  citizens of Gaza and giving it impunity for its refusal to comply with  its international obligations. It is this silence that compels citizens  of good conscience, like David and Ehab, to act where our Government has  so consistently failed to do so.”</span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;"> </span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">Organizers  of the Canadian Boat to Gaza are demanding Foreign Affairs Minister  John Baird step down for failing to do his job to stand up for the  interests of Canadians.</span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">-30-</span></p>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">For updates, stay tuned to:</span></p>
+</div>
+</div>
+<p><span style="font-size: 10pt; font-family: arial,helvetica,sans-serif;">Twitter (@CanadaBoatGaza and #freedomwaves), Facebook.com/CanadaBoatGaza, <a href="http://tahrir.ca/" target="_blank">tahrir.ca</a>, <a href="http://ustogaza.org/" target="_blank">ustogaza.org</a>, <a href="http://freegazaoz.org/" target="_blank">freegazaoz.org</a>, <a href="http://irishshiptogaza.org/" target="_blank">irishshiptogaza.org</a> and <a href="http://witnessgaza.com/" target="_blank">witnessgaza.com</a></span></p>
+<p> </p>

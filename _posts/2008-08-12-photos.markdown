@@ -1,0 +1,8 @@
+---
+layout: post
+title: Photos
+joomla_id: 343
+joomla_url: photos
+date: 2008-08-12 10:58:40.000000000 +02:00
+---
+<p>(20.08.08) Many photos of the boats, the passengers and everything connected to the Free Gaza Movement at flickr.com</p><p><a href="http://www.flickr.com/photos/29205195@N02/">http://www.flickr.com/photos/29205195@N02/</a></p>

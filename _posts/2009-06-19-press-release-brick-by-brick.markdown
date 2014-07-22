@@ -1,0 +1,16 @@
+---
+layout: post
+title: ! 'Press Release: Brick by Brick'
+joomla_id: 919
+joomla_url: press-release-brick-by-brick
+date: 2009-06-19 15:58:39.000000000 +02:00
+---
+Contact:<br />Greta Berlin, Cyprus: +357 99 08 17 67<br />Angela Godfrey Goldstein, Jerusalem: +972 547 366 393<br />www.freegaza.org
+<p>(Larnaca, 18 June 2009) On June 25th, the Free Gaza movement will set sail on its eighth mission to break Israel's horrific siege and collective punishment of 1.5 million Palestinians in the Gaza strip.</p>
+<p>"The Israelis violated international law by ramming the boat I was on which was carrying medical supplies to Gaza.  Therefore, I never got to Gaza.  Especially after Operation Cast Lead, I want to go to Gaza, and if I'm lucky, one day, I'll also get to visit a free Palestine," said former Representative Cynthia McKinney, one of the passengers coming back.</p>
+<p>Along with McKinney, 36 others will board the FREE GAZA , a fishing boat, and the SPIRIT OF HUMANITY, a small ferry loaded with building supplies such as cement, only a token of what is needed in Gaza, but a prelude to larger shipments the Free Gaza movement expects to take throughout the summer.</p>
+<p>Mairead Maguire, the Nobel Peace Prize winner from Ireland is also going back, "I am going to Gaza to show my love and support for the people of Gaza who continue to suffer under Israeli siege and occupation, yet whose spirit of nonviolent resistance inspires all who believe in equality, freedom and justice," she stated.</p>
+<p>"It is crucial that we continue sending boats to Gaza to challenge Israel's criminal closure on the Strip," said Huwaida Arraf, delegation leader of the June 25th voyage. "Gaza does not need our charity but needs us to stand up against the forces that continue to deliberately deny an entire people their human rights. International donors pledged over $4 billion to rebuild Gaza, and yet none of them are doing anything about the fact that Israel is not allowing any building supplies into Gaza, not to mention thousands of other items such as anesthetic, oxygen and cancer treatments, chlorine to treat the water supply as well as paper, books and toys for children, even tea and coffee have been banned."</p>
+<p>This voyage will be the first attempt to challenge Israel's naval blockade on the Gaza Strip since an Israeli gunship brutally rammed the DIGNITY in December, and nearly sank the SPIRIT OF HUMANITY with all on board in January. This 8th trip will also be the first  of a series of boats we intend to send to Gaza as part of our Summer of Hope campaign.</p>
+<p>##########</p>
+<p>The Free Gaza Movement, a human rights group, sent two boats to Gaza in August 2008. These were the first international boats to land in the port in 41 years. Since August, four more voyages were successful, taking Parliamentarians, human rights workers, and other dignitaries to witness the effects of Israel's draconian policies on the civilians of Gaza. On December 30, their boat, the DIGNITY was rammed three times while 90 nautical miles out, in international waters, on its way to deliver emergency medical supplies to the people of Gaza, while they were under the infamous attack by Israel.</p>

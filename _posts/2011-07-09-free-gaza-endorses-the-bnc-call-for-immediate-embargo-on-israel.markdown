@@ -1,0 +1,19 @@
+---
+layout: post
+title: Free Gaza endorses the BNC call for immediate embargo on Israel
+joomla_id: 1324
+joomla_url: free-gaza-endorses-the-bnc-call-for-immediate-embargo-on-israel
+date: 2011-07-09 17:03:17.000000000 +02:00
+---
+<p>The Free Gaza Movement welcomes, endorses, and supports the Palestinian Boycott National Committee (BNC) call for an immediate and comprehensive military embargo on Israel.</p>
+<p>Freedom Flotilla II, and Israel's attempts to thwart it through outrageous acts of intimidation, lies, political pressure, threats of violence, and sabotage, has reminded the world that the criminal blockade on the Gaza Strip is still in force, depriving Palestinians of their basic rights.</p>
+<p>Last May Israel used its arsenal to launch a full military assault on Freedom Flotilla I, killing nine of our colleagues and injuring over 50. This violent assault on an unarmed civilian convoy in international waters was just another example of Israel's unlawful use of military force and its blatant disregard for international law.</p>
+<p>It is through this use of military force that Israel maintains its occupation and colonial apartheid regime in Palestine. Further, every Israeli military operation is used as an opportunity to showcase and promote its weapons to the global arms market thus ensuring the profits needed to support its unlawful actions.</p>
+<p>With this backdrop, and on the 7th anniversary of the historic International Court of Justice (ICJ) decision ruling the Apartheid wall illegal, we must all raise our voices louder and demand that the international community cut all military ties with Israel.</p>
+<p />
+
+According to the ICJ decision, all states are obligated “not to render aid or assistance” in maintaining the situation created by Israel's violations of international law. These grave violations are numerous and besides being in constant breach of the Fourth Geneva Convention, Israel also has a long track record of committing war crimes and crimes against humanity during its armed conflicts. The Israeli policy of indiscriminate use of force and deliberate targeting of civilians was no more evident than during the 2008/09 attack on the Gaza Strip, which the UN Fact Finding mission described as “a systematic attack aimed at punishing, humiliating and terrorizing the Palestinian civilian population.”</p>
+<p>The international community has a legal, and moral, responsibility to act towards ending their complicity with Israel's unlawful actions. The failure of state and inter-state organisations to hold Israel to account for its crimes has allowed it to act with continued impunity. At the same time, states are bankrolling Israel's colonial regime by partaking in military trade relations with it.</p>
+<p>It is time to end this complicity. International law exists for a reason and Israel, regardless of what it may believe and how it may act, is not above the law. A comprehensive military embargo, like the one imposed by the UN Security Council against the apartheid regime in South Africa, is an essential step to pressure Israel to abide by international law. Perhaps then Israel will reconsider attacking civilian ships in international waters or bombing civilian areas with white phosphorous.</p>
+<p>To make this embargo a reality, we all have a role to play. International civil society must stand on the right side of history and hear the unified Palestinian call for Boycott Divestment and Sanctions made 6 years ago. Not only must it hear the call, but it must act upon it and intensify the campaign for an end to the occupation, colonization and ethnic cleansing of Palestine.</p>
+<p>The Free Gaza Movement calls for Israel to be held responsible for its crimes with the immediate enforcement of a military embargo. In the name of freedom, equality, justice and peace, the international community must take this action to end its complicity in Israel's crimes.</p>

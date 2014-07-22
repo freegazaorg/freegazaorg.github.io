@@ -1,0 +1,9 @@
+---
+layout: post
+title: MSP congratulates Gaza blockade-breakers and urges charges against activist
+  to be dropped
+joomla_id: 409
+joomla_url: msp-congratulates-gaza-blockade-breakers-and-urges-charges-against-activist-to-be-dropped
+date: 2008-08-28 15:17:16.000000000 +02:00
+---
+<p>PRESS RELEASE<br />From Dr R. Eric Swanepoel<br />Office Manager/Researcher for Dr Bill Wilson MSP <br /><br />MSP congratulates Gaza blockade-breakers and urges charges against activist to be dropped<br /><br />Dr Bill Wilson, SNP MSP for the West of Scotland, today announced that he had lodged a motion in the Scottish Parliament congratulating activists aboard SS Free Gaza and SS Liberty who have just broken the Israeli blockade of Gaza.  He also confirmed that he had faxed the Israeli government to demand that charges against one of the activists who broke the blockade, an Israeli citizen, be dropped.<br /><br />Commenting, Dr Wilson said, &ldquo;My motion is self-explanatory, as are the letters I wrote to Ms Tzipi Livni, the Israeli Minister of Foreign Affairs, Mr Meir Shitreet, the Israeli Minister of Interior, Mr Ehud Barak, the Israeli Minister of Defence and Mr Menachem Mazuz, the Israeli Attorney General.<br /><br />&ldquo;All I can add to the letters and the motion is to express the hopes that my fellow MSPs will support my motion and send a clear signal to Israel that it should respect human rights and change its counterproductive and provocative policies.  This would, I believe, be in the long-term interests of Israelis as much as anyone else.&rdquo;<br /><br />Please address all  correspondence to:<br />Dr Bill Wilson MSP<br />Parliament<br />Scottish Parliament<br />Edinburgh<br />EH99 1SP<br />Tel. 0131 3486805<br />Fax. 0131 3486806<br />Regional Office<br />14 William Street<br />Paisley<br />PA1 2LZ<br />Tel. 0141 840 2772<br />Fax. 0141 889 4693</p><p><a href=""></a></p>

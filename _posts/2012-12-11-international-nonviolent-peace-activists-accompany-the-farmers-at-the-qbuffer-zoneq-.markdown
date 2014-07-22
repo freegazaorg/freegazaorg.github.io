@@ -1,0 +1,13 @@
+---
+layout: post
+title: ! 'INTERNATIONAL NONVIOLENT PEACE ACTIVISTS ACCOMPANY FARMERS AT "BUFFER ZONE" '
+joomla_id: 1396
+joomla_url: international-nonviolent-peace-activists-accompany-the-farmers-at-the-qbuffer-zoneq-
+date: 2012-12-11 22:07:12.000000000 +01:00
+---
+<p>The following report has just come in from Free Gaza's board member, Maria del mar Fernandez, who is staying in Gaza and working with Palestinians and other activists.</p>
+<p>December 11, 2012: Gaza City: In spite of the stipulations of the ceasefire agreement of November 21, 2012 between the Palestinian Government of the Gaza Strip and Israel, in which it was agreed that there would not be restrictions for farmers to work their land there, and that fishermen could fish up to 6 miles from the coast, Israel has not respected either of these committments and has been attacking fishing boats, arresting fishermen and destroying boats and has repeatedly attacked and injured farmers.</p>
+<p>That is why, a group of 14 solidarity activists have accompanied today the famers to their lands in Khuza'a, close to Khan Younis in the central Gaza Strip to try to prevent these attacks occurring and if so, to monitor them. We were from France, Germany, Italy, Spain, UK and US and wore yellow  and orange coats to advise the Israeli military of our presence.</p>
+<p>Before our arrival, the farmers had tried to go to their lands alone by 8.30 a.m. and told us that they were shot by Israeli soldiers that arrived immediately in tanks, bulldozers and jeeps and prevented them from working.<br />When we arrived, we deployed along the lands to be sowed at 100 meters from the separation fence.</p>
+<p>Shortly after our arrival, Israeli  jeeps appeared and the soldiers descended from them ordering the farmers and us to abandon the zone immediately. We replied that we all were unarmed civilians and that according to the Ceasefire Agreement, the farmers were exerting their right to work their land. We told them as well the different countries we were from and that we were not going to abandon the farmers. They then insisted that we were closer than 100 meters and that we had to go away.  After about half hour exchanging messages, we retired some 10 meters farther back. In the meantime, the farmers were working behind those of us standing between them and the soldiers, with a tractor on which there was also an international accompanying the farmer.  The farmers have now sowed their land with wheat seeds.</p>
+<p>When today's work ended at about 12.30pm, 7.5 dunams (about two acres) had been sowed, and we have all  left with high spirits. Tomorrow, we'll return there to continue our task of solidarity with the farmers.</p>

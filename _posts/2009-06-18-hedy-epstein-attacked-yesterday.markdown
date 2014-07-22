@@ -1,0 +1,10 @@
+---
+layout: post
+title: Hedy Epstein attacked yesterday
+joomla_id: 916
+joomla_url: hedy-epstein-attacked-yesterday
+date: 2009-06-18 15:52:10.000000000 +02:00
+---
+Hedy Epstein, our wonderful 84-year-old Holocaust survivor, the woman who has been determined to come with us to Gaza this year, was attacked yesterday while walking home in her hometown in Missouri.<br /> <br />"Someone came up behind me and pushed me with both hands, throwing me to the ground. I cut an artery in my chin, and my knees are black and blue. I've got several stitches in my chin right now. When I looked up to see him, he was running as fast as he could away from me." said Hedy this morning.<br /> 
+
+<br />Her friend was with her, and neither woman was robbed of anything. When talking to her friend's husband, he said, "Listen, in St. Louis if someone is going to push you, they are after your purse. This was a targeted attack. And, if anyone else has either been attacked or been threatened, we want to know, because the police here need to know."<br /> <br />Last year when we were getting ready to go on our first trip to break Israel's blockade of Gaza, many of us were threatened by Israel-firsters, some even bragged that they would blow up our boat, sink it,  or kill our children. The sister-in-law of Tony Blair was threatened that her children would be killed. Those of us organizing the project were threatened as well. It didn't stop us then, and it won't stop us now.<br /> <br />In January when Hedy was interviewed on TV about Israel's war crimes in Gaza, she got several threatening phone calls, "We're going to come and find you, and we will take care of you." <br /><br /> This message needs to go out far and wide to everyone appalled that pro-Israel thugs would push an 84-year-old woman to the ground in an attempt to hurt her and scare her from coming. When I hung up today, the last words Hedy said were, "Can I come later? Would you put me on the August trip?'<br /> <br />The answer is a resounding... "YES".<br clear="all" />

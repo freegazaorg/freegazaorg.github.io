@@ -1,0 +1,8 @@
+---
+layout: post
+title: Report from Gaza
+joomla_id: 595
+joomla_url: report-from-gaza
+date: 2008-12-27 07:42:48.000000000 +01:00
+---
+3pm from Gaza city (from Sharon, Australia) I was at home beside the small Gaza port, eating a bread and jambreakfast, when the rockets began to fall at about 11am. Six or seven deafening explosions occured not far from my building, which rocked fromthe impact, smoke and dust filling the air. This occurred just as thechildren were on the streets walking back from school, and when I went outonto the stairs, a terrified 5 year old girl ran sobbing into my arms.Vik (Italy) later ascertained that these rockets had targetted the port police station, and also the &quot;President's Palace&quot; nearby, killing about 20. At the time of the attacks, Eva (Canada) was on Omar Mukhtar street wherea police station had just been hit, and witnessed a last rocket hit thestreet 150 m away where crowds had already gathered to try to extract thedead bodies. The street was littered with rubble, making it difficult forambulances and cars to get near enough to take bodies away.Al Shifa hospital in Gaza city is full of dazed, wounded people - andalso, we are told, pieces of what were people. Two from our group arecurrently inside documenting. Eva stood outside the hospital, watching ascar after car, as well as the small number of functional ambulances,rushed into the hospital, Gaza's main hospital, bringing the dead and theseverely injured. We also have a team documenting in Rafah. We are hearing that over 100 aredead and over 200 wounded.&nbsp; Several of the police stations that were targetted were having training days, but the dead and wounded includecivilians and children. More detailed reports will follow.<p><a href=""></a></p>

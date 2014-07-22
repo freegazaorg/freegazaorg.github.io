@@ -1,0 +1,9 @@
+---
+layout: post
+title: Statement by Tun Dr. Mahathir Mohamad
+joomla_id: 995
+joomla_url: statement-by-tun-mahathir-mohamad
+date: 2009-07-05 16:43:59.000000000 +02:00
+---
+<p><img style="border: 1px solid #000000; margin: 6px;" alt="perdana" src="images/stories/perdana.jpg" width="88" height="137" /><strong>Former Malaysian PM Tun Dr. Mahathir bin Mohamad Condemns the Abduction and Detention of Cynthia McKinney, Mairead Maguire and members of the Free Gaza Movement by Israel</strong></p>
+<p>Statement by Tun Mahathir Mohamad:<br /><em>It was indeed shocking to hear about the detention of vessels </em><em>carrying humanitarian aid and the abduction and arrest of the volunteers on board the Gaza-bound ships. The fact that the Israeli Government committed these acts while the ships and volunteers were in international waters reflects the arrogance of the Zionist administration. That it was committed with such impunity, with total disregard of the international community further emphasizes how dangerous Israel is to the global peace equation.<br />To add insult, President Barack Obama had very recently said that Israel must allow humanitarian aid be channeled to the Palestinians in Gaza who are dying due to the stranglehold imposed by Tel Aviv.<br /><br />We demand that the Israeli Government to immediately release the volunteers and the vessels including the aid on board unconditionally.<br /><br />Failing which we expect President Obama to walk the talk and take Israel to task and to ensure the immediate release of the volunteers and boats.<br /><br />We hope President Obama is aware that the volunteers include an upright American former Congressman Cynthia McKinney as well as Nobel Laureate Mairead Maguire.</em><br /><br />DR MAHATHIR BIN MOHAMAD <br />Chairman<br />Perdana Global Peace Organisation</p>

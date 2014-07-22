@@ -1,0 +1,13 @@
+---
+layout: post
+title: ! 'When the Cupboard Runs Dry '
+joomla_id: 790
+joomla_url: when-the-cupboard-runs-dry-
+date: 2009-03-20 18:07:55.000000000 +01:00
+---
+<p>Ahmad Saud Basal is an eleven-year-old boy from Tuffah, a village in the middle of Gaza. He lives in a two room house along with five brothers and sisters, his parents and a grandmother. Times are tough, much harder than before. The 2 year-long siege of Gaza has been devastating, and its effects will continue to take a toll. Education; health care; transportation; the economy: every aspect of a normal society lies in ruins, the result of a campaign of collective punishment carried out in disregard not only of international human rights law but also the underlying values of every major religion. </p>
+
+<p>Ahmad and his family aren't starving. This isn't Somalia. Gaza was never the so-called "Third World." But hierarchies of suffering miss the point. Compared to before, when factories were open, when farms could bring their products to market, when students could study at night by electricity rather than by candles, life today has grown desperate. Unemployment has hit 80%. Skyrocketing prices for basic necessities-food, clothes, medicines-force people to survive hand to mouth. In such an economic crisis, parents-however reluctantly- must enlist their children as wage earners.</p>
+<p>Beginning early each morning, Ahmad and his ten-year sister, Hadia, go to work with their father. The three of them sell tea in the street. For an eight hour day, each of the children earns between 6-10 shekels ($2-$3.50). Added to what their father makes, the family brings in $12 dollars a day, not much when meat cost $15 a kilo and fruit, which Ahmad hasn't tasted in a year, $3 a kilo.</p>
+<p>UNWRA food packages help but the rations, given out four times a year, are basic: 30 kilos of flour; 5 kilos of rice; 5 kilos of sugar; 3 kilos of lentils, 6 litres of oil; and sometimes, 5 250 gram cans of sardines. For a family of eight, this doesn't go far.</p>
+<p>Children like Ahmad represent the germ seed for the future. It is true that Palestinians have honed a collective resilience in the face of historic hardships. But this strength should not be sentimentalized. Children, who remain exquisitely sensitive to their circumstances and surroundings, need a healthy environment in which to develop and thrive, explore and play, hope and dream. The captivity imposed by the siege has robbed them of this freedom. <br />Restoring this freedom to Ahmad and helping him recuperate from the deprivations he has endured, remains a challenge that has only just begun.</p>

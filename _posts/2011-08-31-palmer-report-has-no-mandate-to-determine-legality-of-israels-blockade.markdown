@@ -1,0 +1,12 @@
+---
+layout: post
+title: Palmer Report Has No Mandate to Determine Legality of Israel's Blockade
+joomla_id: 1333
+joomla_url: palmer-report-has-no-mandate-to-determine-legality-of-israels-blockade
+date: 2011-08-31 18:21:34.000000000 +02:00
+---
+<p><span style="font-size: 12pt;"><span style="font-family: arial,helvetica,sans-serif;">The Palmer panel did not interview anyone. It's mandate was limited to  reviewing the findings & conclusions of the national investigations  conducted by Israel and Turkey, with the ultimate goal of "positively  affecting the relationship between Turkey & Israel. The report is supposed to take into account both  investigations, but  the HRC FFMission Report has already said, </span><span style="font-family: arial,helvetica,sans-serif;">“public confidence in any investigative process ... is not enhanced when the subject of the investigation either investigates himself or plays a pivotal role in the process.”<br /></span><span style="font-family: arial,helvetica,sans-serif;"> </span><span style="font-family: arial,helvetica,sans-serif;"><br /></span><span style="font-family: arial,helvetica,sans-serif;">Since Israel does not cooperate with UN agencies and disregards the over 66 resolutions  criticizing it, it's interesting to note that Israel seems to be backing this particular report, one that only had a mandate to reviewing national investigations and not determining the international or maritime laws regarding Israel's illegal blockade of the people of Gaza.</span></span></p>
+<p><span style="font-size: 12pt;"><span style="font-family: arial,helvetica,sans-serif;">Amnesty International determined that Israel's actions on May 31, 2010 when Israeli commandos attacked our boats in international waters, killed eight Turks and one American and wounded over 50 people on board all five boats were unlawful. </span></span></p>
+<p><a href="http://amnesty.org/en/library/asset/MDE15/013/2011/en/96e848bd-56ee-4e6e-a817-17e07c3d5192/mde150132011en.html">http://amnesty.org/en/library/asset/MDE15/013/2011/en/96e848bd-56ee-4e6e-a817-17e07c3d5192/mde150132011en.html</a></p>
+<p><span style="font-size: 12pt;"><span style="font-family: arial,helvetica,sans-serif;">We are also including Free Gaza's </span></span><span style="font-size: 12pt;">Summary of the UN Human Rights Council’s                Fact‐Finding Mission Report. <br /></span></p>
+<p> </p>

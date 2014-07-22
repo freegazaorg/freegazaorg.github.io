@@ -1,0 +1,48 @@
+---
+layout: post
+title: FreeGaza Newsletter May 2009
+joomla_id: 885
+joomla_url: freegaza-newsletter-may-2009
+date: 2009-05-28 23:00:00.000000000 +02:00
+---
+<p>This newsletter is also available in French, German, Italian, Spanish, Arabic and Hebrew, just choose your language on the top right corner.</p>
+<h3>Introduction</h3>
+<p>The Free Gaza Movement [<a title="Freegaza" href="undefined">http://www.freegaza.org</a>] is a human activist group which, in August 2008, docked the first international boats in Gaza after 41 years of isolation. We are now preparing a new expedition to support the Gaza population, which is suffering because of the continued Israeli siege.</p>
+<p>The current situation in Gaza is reported in the video series available in English, French and Italian on this page:<a title="Situation in gaza, videos" href="en/links-a-gaza-info/videos"><br />http://freegaza.org/en/links-a-gaza-info/videos</a></p>
+<h3>Support the Free Gaza Movement</h3>
+<p>We're turning to you today, because we need your help now more than ever. Please visit our donate page [<a title="Donate" href="en/donate">http://freegaza.org/en/donate</a>] for more information on how you can help ensure our continuing missions to Palestine, also US tax deductible donations are now possible [<a title="US tax deductible donations" href="en/usa-donations">http://freegaza.org/en/usa-donations</a>]. Please give generously.</p>
+<p>
+
+</p>
+<h3>Ewa Jasiewicz and Caoimhe Butterly speaking tour in Europe</h3>
+<p>Ewa and Caoimhe, our two Free Gaza coordinators who have been working on the ground in Gaza, are currently on a speaking tour, in Europe, raising awareness of the current situation in Gaza and providing eye witness accounts of the December - January massacres. As well as bearing witness to the suffering in Gaza, they are making links with many different groups who are interested in making direct solidarity links with groups inside Gaza. These groups include schools, ambulance workers, people involved in education and other trade unionists.</p>
+<p>Ewa and Caoimhe hope to provide a `bridge' to support a direct link between schools, paramedics, universities and others, which they will help to set up on their return to Gaza next month. They both report that one of the important things is to break down the sense of acute isolation that so many Gazans feel - and solidarity links are a concrete way of challenging the siege of Gaza. One of the presentations by Caoimhe is on our website [<a title="eye-witness-gaza-2009" href="en/home/56-news/879-eye-witness-gaza-2009">http://www.freegaza.org/en/home/56-news/879-eye-witness-gaza-2009</a>]</p>
+<h3>Reflections on the loss of the DIGNITY</h3>
+<p>by <em>Ramzi Kysia</em></p>
+<p>On the morning of May 4th, 2009, the Free Gaza Movement's flagship - the DIGNITY - was lost outside Larnaca port. During a storm in Cyprus, she was thrown against the marina seawall, opening up a large hole on her starboard stern side. While attempting to tow her to safety, she took on more water than her bilge pumps could handle, and she went down at sea.</p>
+<p>Derek Graham, Free Gaza organizer and first mate aboard the DIGNITY, worked hard to save her but, in the end, Mother Nature was more powerful. "All I could do was watch," Derek remarked after the loss, "She was a strong boat, and fought hard. She did what was asked of her. As I watched she groaned and cried and struggled to stay afloat. With one last, loud cry, the wheelhouse collapsed and the fly-bridge broke from the main structure - then it went quiet".</p>
+<p>For six months the DIGNITY withstood threats and intimidation from one of the world's most powerful military states. She stood up under a deliberate attempt to sink her in December, when an Israeli gunboat rammed her port side three times as she was attempting to deliver doctors and emergency medical aid to a besieged and war-devastated Gaza.</p>
+<p>She stood up as she crossed the Mediterranean to reach Gaza on four separate occasions, bringing in tons of desperately needed supplies, as well as dozens of human rights workers, doctors, journalists, and parliamentarians.</p>
+<p>The DIGNITY was more than just wood and steel. For those of us who loved her, traveled on her, and fussed over her - she was truly something special. She was the joy that internationals and Palestinians could finally enter and exit Gaza, free from Israeli control and intimidation. Her voyages were a shout and a hope, to an indifferent world, that a besieged Gaza would one day be open to visitors and commerce - just like any other port on the Mediterranean.</p>
+<p>As Greta Berlin, co-founder of the Free Gaza Movement said when she was lost, "To the end, the DIGNITY was a boat that lived up to her name."</p>
+<p>She will be sorely missed.</p>
+<h3>Current situation in Gaza</h3>
+<p>by <em>Vittorio Arrigoni</em></p>
+<p>Here in Gaza "lead is not casting" anymore, but it has been shot against us regularly.<br />Rafah tunnels, (the only way to get food and necessities for civilian people, prisoner of a ruthless siege), are being bombed from time to time, burying Palestinian miners just as farmers are daily shot at by snipers while working on their own lands close to borderline.</p>
+<p>Early in the morning, here, in front of the seaport, I've been awakened by artillery shots by Israeli navy firing against rudimentary Palestinian fishermen boats to prevent them moving more than a few miles off their own coastline.</p>
+<p>There are really just little fish left close to the Gaza coastline, there is only barren water there due to pollution and over exploitation. During the past two months, a dozen fishermen have been kidnapped, taken to Israel and their boats have been confiscated, because they move farther than 2.5 Km from the coast.</p>
+<p>If at sea fishing, there is a high level of risk to be killed while searching for food; also on land, surviving is not easy at all: Israel is increasingly striking out in East Khan Younis. And in case shooting against unarmed civilians is not enough, Israeli forces are playing pyromania: overrunning borders and setting fire to Palestinian fields, in particular barley and grain fields, whose harvesting is the only income for hundreds of families.</p>
+<p>During the last massacre 21 000 civilian buildings have been destroyed or damaged by Israeli bombings, 100 000 Palestinians are homeless, a situation which recalls the Nakba of 1948.</p>
+<p>The reconstruction does not even have a chance, because it is forbidden to import cement and building materials. Israeli officers say these vitally-needed supplies would be used to build tunnels to Rafah in spite of the obvious desire to rebuild and make a life for their children.</p>
+<p>Similarly, most goods cannot be imported in Gaza, Israel approved a list of about 40 type of goods, a huge decrease from the 3000-4000 allowed before the siege begun.</p>
+<p>At the corners of the streets it is usual to see many children beg for some change selling parsley or mint, dressed in dirty rags. Who knows what happened to their families in the massacres?<br />Sentenced to a severe punishment for the crime of not wanting to succumb to a better-armed oppressor, Palestinians have resisted for 61 years, relegated to isolationism by the world politics.</p>
+<p>Looking beyond the horizon, here at the port, I look forward to the civil society that fights for for peace and human rights, and seek to bring here all its empathy through a courageous FLOTILLA.</p>
+<p>Resist and stay human.</p>
+<p>Another contribution on the situation in Gaza by Natalie Abou <span class="author">Shakra is available on the website:<br /><a title="Situation in Gaza" href="en/home/56-news/884-current-situation-in-gaza">http://www.freegaza.org/en/home/56-news/884-current-situation-in-gaza</a></span></p>
+<h3>HOPE FLEET</h3>
+<p>by <em>Greta Berlin</em></p>
+<p>When the Dignity sank, many supporters were dismayed that our flagship might have sunk our hopes to continue our voyages to Gaza. Two days before the boat cried out and slipped into the waters, two Israelis had stopped our first mate, Derek Graham, and said they wanted to see the Dignity sunk. Many of you have written to us, convinced that the "Sinking of the Dignity" was deliberate, an act by a people terrified that our small acts of resistance were beginning to turn the tide of public opinion against Israeli aggression.</p>
+<p>None of us working on the ground in Cyprus can say for certain what happened, except that the boat is gone. But all of us working on this project for the past three years will promise that we will not stop the boats to Gaza.</p>
+<p>We may be delayed until we find a replacement, but we will not be deterred. Right now, the projects group is looking at dates in June for the two boats we already own, along with a possible passenger or cargo boat if we can buy one in time. Although we are not ready to announce a date yet, we believe that within the next week, we will be able to.</p>
+<p>What does this date depend on? How many can come? Who are the high-profile people willing to go on the boats that will not be as comfortable as the Dignity but are definitely sea-worthy? And, finally, what kind of statement do we want to make to the world that has turned its back on the Palestinians, ashamed to stand up for the last victims of WW II? These are all questions that we will continue to answer over the summer.</p>
+<p>FreeGaza newsletter [<a title="Freegaza Newsletter" href="en/home/newsletter">http://www.freegaza.org/en/home/newsletter</a>]</p>
