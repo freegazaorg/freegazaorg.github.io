@@ -1,3 +1,6 @@
+--
+layout: page
+--
 ## Interim Board of Directors & Staff
 In November 2008, the Free Gaza Movement elected an interim Board of Directors. We have appointed two individuals to coordinate our work in Gaza, as well as a group of international coordinators around the world, and a distinguished board of advisors.  
 
