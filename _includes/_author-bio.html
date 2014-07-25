@@ -20,3 +20,43 @@
 {% if site.owner.pinterest %}<a href="http://www.pinterest.com/{{ site.owner.pinterest }}" class="author-social" target="_blank"><i class="fa fa-pinterest"></i> Pinterest</a>{% endif %}
 {% if site.owner.foursquare %}<a href="http://foursquare.com/{{ site.owner.foursquare }}" class="author-social" target="_blank"><i class="fa fa-foursquare"></i> Foursquare</a>{% endif %}
 {% if site.owner.steam %}<a href="http://steamcommunity.com/id/{{ site.owner.steam }}" class="author-social" target="_blank"><i class="fa fa-steam-square"></i> Steam</a>{% endif %}
+
+<h4>Paypal Donation</h4>
+
+<form action="https://www.paypal.com/cgi-bin/webscr" method="post" target="paypal">
+    <input type="hidden" name="cmd" value="_donations" />
+    <input type="hidden" namee="business" value="Freedom4Sailors@gmail.com" />
+    <input type="hidden" name="return" value="http://" />
+    <input type="hidden" name="undefined_quantity" value="0" />
+    <input type="hidden" name="item_name" value="Support F.G. Human Rights Projects, Ltd (Free Gaza)" />
+    Amount:&nbsp;<input type="text" name="amount" size="4" maxlength="10" value="" style="text-align:right;" />
+    <select name="currency_code">
+        <option value="EUR">EUR</option>
+        <option value="USD">USD</option>
+        <option value="GBP">GBP</option>
+        <option value="CHF">CHF</option>
+        <option value="AUD">AUD</option>
+        <option value="HKD">HKD</option>
+        <option value="CAD">CAD</option>
+        <option value="JPY">JPY</option>
+        <option value="NZD">NZD</option>
+        <option value="SGD">SGD</option>
+        <option value="SEK">SEK</option>
+        <option value="DKK">DKK</option>
+        <option value="PLN">PLN</option>
+        <option value="NOK">NOK</option>
+        <option value="HUF">HUF</option>
+        <option value="CZK">CZK</option>
+        <option value="ILS">ILS</option>
+        <option value="MXN">MXN</option>
+    </select>
+    <input type="hidden" name="charset" value="utf-8" />
+    <input type="hidden" name="no_shipping" value="1" />
+    <input name="lc" value="en" type="hidden">
+    <input type="hidden" name="imagesage_url" value="http://www.freegaza.org/images/stories/freegaza/adv.png" />
+    <input type="hidden" name="cancel_return" value="http://" />
+    <input type="hidden" name="no_note" value="0" /><br /><br />
+    <div align="center">
+        <input type="image" src="https://www.paypalobjects.com/en_GB/i/btn/btn_donate_SM.gif" name="submit" alt="PayPal secure payments." />
+    </div>
+</form>
