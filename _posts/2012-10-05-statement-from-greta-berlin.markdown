@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Statement from Greta Berlin
-joomla_id: 1369
+joomla_id: 1368
 joomla_url: statement-from-greta-berlin
 date: 2012-10-05 17:24:33.000000000 +02:00
 ---
