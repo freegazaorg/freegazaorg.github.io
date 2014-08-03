@@ -82,6 +82,10 @@ prose:
         - /uploads
         - /attachments
         - /assets
+        - Gemfile*
+        - "*js"
+        - "*rb"
+        - "*xml"
 
     "":
       - name: "layout"
