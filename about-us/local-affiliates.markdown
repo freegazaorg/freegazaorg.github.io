@@ -66,6 +66,10 @@ information.
 	Muhsen Ramadan
     muhsen20122 (at) hotmail.com
     
+    TUNISIA
+    Rim Selmi
+    rimselmi82 (at) gmail.com
+    
     EASTERN USA
     Dina Kennedy or Susan Kerin
     dkennedy [at] freegaza.org
