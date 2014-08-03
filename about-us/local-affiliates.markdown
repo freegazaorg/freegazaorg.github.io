@@ -59,7 +59,7 @@ information.
     makrawter [at] gmail.com
     
     NEW ZEALAND
-    Fathi Hassneiah
+    Fathi Aymen
     fathifh (at) gmail.com
     
     PALESTINE (1948 & West Bank)
