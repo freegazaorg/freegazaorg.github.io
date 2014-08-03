@@ -1,5 +1,6 @@
 ---
 published: true
+layout: post
 ---
 
 ## Planning to launch new Freedom Flotilla to Challenge Blockade
