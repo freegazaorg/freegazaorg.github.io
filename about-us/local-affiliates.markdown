@@ -1,18 +1,11 @@
 ---
 layout: page
 title: Local affiliates
-date: 2009-01-30 09:47:10.000000000 +01:00
+date: {}
+published: true
 ---
-The Free Gaza Movement has moved our base of operations and is now a
-registered charitable organization in Cyprus. Our main office address
-is:
 
-    F.G. Human Rights Projects, Ltd (Free Gaza Movement)
-    c/o Centaur Trust
-    2 Apostolos Varnavas Street
-    2571 Nisou, Nicosia, Cyprus
-    Tel. +357 99 081 767
-    friends [at] freegaza.org
+As we get ready to sail, once again, to the embattled shores of Gaza, we count on volunteers around the world to get the message out. Since we are a totally volunteer movement, and no one is paid to work with Free Gaza, the great majority of our donations go for boat projects. 
 
 ### Free Gaza Affiliates
 
@@ -30,15 +23,12 @@ information.
     Free Gaza Volunteer International Coordinators
     INTERNATIONAL MOVEMENT
     Greta Berlin
-    friends [at] freegaza.org
+    Freedom4Sailors (at) gmail.com
     
     VOLUNTEERS COORDINATOR
     Susan Kerin
     volunteer [at] freegaza.org 
     
-    ARGENTINA (Buenos Aires)
-    Guillermo Azzi 
-    guillermoazzi [at] hotmail.com
     AUSTRALIA
     Michael Shaik
     michael [at] australiansforpalestine.com
@@ -47,48 +37,18 @@ information.
     Luk Vervaet, Yvette Van Hauwe, Sami Shamsi, and Nordine Saïdi 
     vervaetluk [at] gmail.com
     
-    CHILE (Santiago)
-    Catalina Chuaqui Awad
-    cata\_chuaqui [at] hotmail.com
-    
     DENMARK
     Adam Qvist
     adamqvist [at] freegaza.org
-    
-    ENGLAND
-    Alex Harrison, Hils S. or Musheir Al-Farrah
-    alex [at] freegaza.org
-    hils4gaza [at] freegaza.org
-    
-    FRANCE
-    Mawuko Amegavi
-    mawuko [at] gmail.com
     
     GERMANY (http://www.freegaza.de)
     Gisela Siebourg or Hilu Barth
     gisela.siebourg [at] t-online.de
     hilu.barth [at] t-online.de
     
-    GREECE ( http://shiptogaza.gr )
-    Vicky Magaliou 
-    bmagaliou [at] yahoo.gr
-    
-    INDIA
-    Feroze Mithiborwala
-    feroze.moses777 [at] gmail.com
-    
-    IRELAND (http://irishshiptogaza.org/)
-    Claire Cumiskey, Alan Lonergan, and Niamh Moloughney
-    niamh [at] freegaza.org
-    alan [at] freegaza.org
-    
     ITALY
     Marele Delia
     mariaelena.delia [at] freegaza.org
-    
-    JORDAN (Irbid)
-    Abdallah Samin
-    Irbid [at] freegaza.org
     
     LEBANON
     Natalie Abou Shakra 
@@ -98,39 +58,13 @@ information.
     Mohideen Abdul Kader
     makrawter [at] gmail.com
     
-    NORWAY (www.shiptogaza.no)
-    Marte Sofie Dahlen
-    marte [at] shiptogaza.no
-    
-    
     PALESTINE (1948 & West Bank)
     Lubna Masarwa
     lubnna [at] gmail.com
     
     PALESTINE (Gaza)
-    Caoimhe Butterly or Ewa Jasiewicz
-    caoimhe [at] freegaza.org
-    ewa [at] freegaza.org
-    
-    POLAND
-    Ewa Jasiewicz
-    ewa [at] freegaza.org
-    
-    SCOTLAND (http://www.freegaza-scotland.org)
-    Theresa McDermott, Anne Alden, and Carl Abernethy
-    theresa\_mcdermott [at] hotmail.com
-    
-    SPAIN
-    Alberto Arce
-    albarce [at] gmail.com
-    
-    UNITED ARAB EMIRATES (Abu Dhabi)
-    Doha Alwazany
-    AbuDhabi [at] freegaza.org
-    
-    UNITED ARAB EMIRATES (Dubai)
-    Jafra Allan or Malik Shahin
-    Dubai [at] freegaza.org
+	Muhsen Ramadan
+    muhsen20122 (at) hotmail.com
     
     EASTERN USA
     Dina Kennedy or Susan Kerin
