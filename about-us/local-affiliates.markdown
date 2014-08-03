@@ -58,6 +58,10 @@ information.
     Mohideen Abdul Kader
     makrawter [at] gmail.com
     
+    NEW ZEALAND
+    Fathi Hassneiah
+    fathifh (at) gmail.com
+    
     PALESTINE (1948 & West Bank)
     Lubna Masarwa
     lubnna [at] gmail.com
