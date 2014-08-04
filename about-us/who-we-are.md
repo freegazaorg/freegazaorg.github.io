@@ -1,10 +1,12 @@
 ---
 layout: page
 title: Who we are
-date: 2009-04-09
+date: {}
+published: true
 ---
+
 ## Interim Board of Directors & Staff
-In November 2008, the Free Gaza Movement elected an interim Board of Directors. We have appointed two individuals to coordinate our work in Gaza, as well as a group of international coordinators around the world, and a distinguished board of advisors.  
+Below are the names and bios of the Free Gaza board as well as our web team and our board of advisors, many of whome began with the Free Gaza movement in 2006.   
 
 ### Web Team
 
@@ -14,10 +16,10 @@ Andrea is a webdesigner, he joined the Freegaza.org team in December 2009.
 ### Interim Board of Directors of Free Gaza II
 
 Greta Berlin (France/USA), Board Secretary
-Greta Berlin is one of the founders of the Free Gaza Movement. She has been an advocate for justice for the Palestinians since the early 60s. She is the mother of two Palestinian/American children whose father was born and raised in Safad, Palestine and is a 1948 refugee. She has a masters degree in Theatre and a bachelor’s in English and, when she’s not working with the Palestinians, has spent the past 32 years teaching engineers and scientists how to design and deliver presentations.
+Greta Berlin is one of the founders of the Free Gaza Movement. She has been an advocate for justice for the Palestinians since the early 60s. She is the mother of two Palestinian/American children whose father was born and raised in Safad, Palestine and is a 1948 refugee. She has a masters degree in Theatre and journalism and a bachelor’s in English and theatre. She was on the first voyage in August, 2008 and helped run the next four voyages, all successful in entering Gaza in 2008. She was one of the major spokespersons for Freedom Flotilla I and has continued as the media contact for Free Gaza. She is the co-editor and co-author of the book, Freedom Sailors, the story of the first voyage to Gaza and how we succeeded in spite of ourselves. The book can be purchased through http://www.amazon.com/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894
 
-Audrey Bomse (UK/USA) 
-Audrey Bombse has been an activist since her student days in the 1960s. She's been involved in the Civil Rights Movement, the prisoner rights movement, and the El Salvador and Palestinian solidarity movements. As a human rights lawyer, she worked in Israel and the OPT for much of the past 7 years, most recently as coordinator of the United Against Torture Coalition, comprised of 15 Palestinian and Israeli NGOs representing the interests of Palestinian detainees and working to prevent and combat torture. Audrey was a passenger on the second voyage of the Free Gaza Movement in October 2008, and has been working on legal issues involving the Israeli naval assaults on the Dignity, as well as on Gaza fisherman and their boats.  Audrey has been an active member of the National Lawyers Guild (NLG) for 25 years, past co-chair of its Prisoners' Rights Committee and is the current co-chair of its Free Gaza Subcommittee.
+Audrey Bomse (USA) 
+Audrey Bomse has been an activist since her student days in the 1960s. She’s been involved in the civil rights movement, the prisoner rights movement, and the El Salvador, Egypt and Palestinian solidarity movements. As a human rights lawyer, she worked in Israel and the OPT for 7 years, including as coordinator of the United Against Torture Coalition, comprised of 15 Palestinian and Israeli NGOs representing the interests of Palestinian detainees and working to prevent and combat torture. Audrey was a passenger on the second voyage of the Free Gaza Movement in October 2008, and has been working on legal issues involving the Israeli naval assaults on the Freedom Flotilla as well as on Gaza fisherman and their boats. Audrey has been an active member of the National Lawyers Guild (NLG) for 25 years, past co-chair of its Prisoners’ Rights Committee and is the current co-chair of its Palestine Subcommittee.
 
 Maria del Mar Fernandez (Spain) Bio to come
 
@@ -32,7 +34,7 @@ and in breaking the siege activities.
 
 Col. Ann Wright, (US)
 
-Ann is a twenty-nine-year veteran of the U.S. Army and U.S. Army Reserves who retired as a colonel. She served sixteen years in the U.S. Diplomatic Corps in U.S. Embassies in Nicaragua, Grenada, Somalia, Uzbekistan, Kyrgyzstan, Sierra Leone, Micronesia, Afghanistan, and Mongolia. She was deputy ambassador in the last four embassies where she served.
+Ann is a twenty-nine-year veteran of the U.S. Army and U.S. Army Reserves who retired as a colonel. She served sixteen years in the U.S. Diplomatic Corps in U.S. Embassies in Nicaragua, Grenada, Somalia, Uzbekistan, Kyrgyzstan, Sierra Leone, Micronesia, Afghanistan, and Mongolia. She was deputy ambassador in the last four embassies where she served. Ann was a passenger on board Challenger 1, the Free Gaza boat in Freedom Flotilla I when the flotilla was attacked on May 31, 2010, and has written and spoken many times about the morning of the attack. 
 
 ## Board of advisors
 
@@ -62,13 +64,11 @@ Baroness Jenny Tonge is a human rights activist and a member of the British Hous
 
 Gaza Advisory Council
 
-Mona El-Farra is Deputy Director of the Union of Health Work Committees in Gaza. She is a physician by training, and a human rights and women's rights activist by practice.
+Mona El-Farra, M.D. is Deputy Director of the Union of Health Work Committees in Gaza. She is a physician by training, and a human rights and women's rights activist by practice.
 
 Mahfouz Kabariti is a human rights activist and President of the Palestinian Sailing Federation and Fishing & Marine Sports Association in Gaza.
 
 Jamal El-Khoudary is the Chairman of the Popular Committee Against the Siege and an independent member of parliament in Gaza. He is a long-time outspoken advocate for the people of Palestine.
-
-Eyad Sarraj is a doctor and world-renowned human rights activist from Gaza. He is the founder and director of the Gaza Community Mental Health Programme (GCMHP), and Commissioner-General of the Palestinian Independent Commission for Citizens' Rights. Dr. Sarraj is an expert on the mental impact of violence on childhood development and has also written extensively on the subject in English as well as in Arabic.
 
 Amjad Al-Shawa is an organizer and human rights activist and the Director of the Palestinian NGO Network (PNGO) in Gaza City, a civil and democratic body comprising more than 100 Palestinian NGOs, which seeks to support, consolidate and strengthen the Palestinian civil society.
 
