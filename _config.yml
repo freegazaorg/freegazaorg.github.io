@@ -41,7 +41,7 @@ links:
   - title: About us
     url: "/about-us/"
   - title: Boat trips
-    url: "/trips/"
+    url: "/trips.html"
   - title: Old website
     url: http://archive.freegaza.org
     external: true
