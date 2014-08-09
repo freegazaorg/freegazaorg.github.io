@@ -1,0 +1,24 @@
+---
+layout: post
+title: GERMANY
+joomla_id: 1184
+joomla_url: germany
+date: 2010-05-28 12:15:04.000000000 +02:00
+---
+<p>Annette Groth 56<br />Berlin, Germany</p>
+<p><img alt="Annette_Groth" src="images/stories/passenger/Annette_Groth.jpg" height="169" width="113" /></p>
+<p>Annette Groth is a Member of Parliament in the German Bundestag and Human Rights Policy Spokeswoman for the LEFT Party Parliamentary Group. <br />She serves on the Human Rights and Humanitarian Aid Committee, as well on the Economic Cooperation and Development Committee. <br />From 1992 to 1997 she worked as Education Officer with the United Nations High Commissioner for Refugees (UNHCR) in Geneva. From 1997 to 1999 she was Director of the Ecumenical Coalition on Third World Tourism (ECTWT) and Editor of the quarterly journal CONTOURS in Barbados. <br />She is a member of the NGO attac, and chair of the German-Greek Parliamentary Friendship Group of the Bundestag.</p>
+<p> </p>
+<p>Inge D.M. Höger 59<br />Herford, Germany</p>
+<p><img alt="Inge_Hger" src="images/stories/passenger/Inge_Hger.jpg" height="144" width="115" /></p>
+<p>Inge Höger is a Member of Parliament in the German Bundestag, serving on the Defence and Health Committees. <br />She has been active in trade unions, and social and women's movements her entire life. She is the political spokesperson for the LEFT party.</p>
+<p> </p>
+<p>Matthias Jochheim 61<br />Frankfurt, Germany</p>
+<p>Matthias is a physician and psychotherapist. He is Deputy chair of IPPNW Germany, International Physicians for the Prevention of Nuclear War <<a href="http://www.ippnw.de">www.ippnw.de</a>>.</p>
+<p> </p>
+<p>Norman Paech 72<br />Hamburg, Germany</p>
+<p><img alt="Norman_Paech" src="images/stories/passenger/Norman_Paech.jpg" height="209" width="139" /></p>
+<p>Prof. Dr. Norman Paech is a LEFT Member of Parliament in Germany's Bundestag, as well as Professor of Public Law at the University of Economics and Political Science (HWP) in Hamburg. He is a member of the advisory council of International Association of Lawyers against Nuclear Armament (IALANA), of International Physicians for the Prevention of Nuclear War" (IPPNW) and Attac, as well as a member of the International Association of Democratic Lawyers (IADL), and of the Auschwitz Komitee.</p>
+<p> </p>
+<p> </p>
+<p> </p>

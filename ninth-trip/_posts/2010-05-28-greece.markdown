@@ -1,0 +1,9 @@
+---
+layout: post
+title: GREECE
+joomla_id: 1181
+joomla_url: greece
+date: 2010-05-28 11:14:38.000000000 +02:00
+---
+<p>Giorgos Klontzas (39)<br />Agios   Nikolaos, Greece</p>
+<p>George Klontzas is a professional diver and sailor. He was captain of the Liberty on the first voyage in August 2008, and captain of the Spirit of Humanity in January 2009</p>

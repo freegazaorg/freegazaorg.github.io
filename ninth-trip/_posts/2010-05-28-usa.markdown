@@ -1,0 +1,23 @@
+---
+layout: post
+title: USA
+joomla_id: 1178
+joomla_url: usa
+date: 2010-05-28 10:51:09.000000000 +02:00
+---
+<p>Greta Berlin<br />USA</p>
+<p><img alt="Greta" src="images/stories/speakers/Greta.jpg" height="107" width="93" /></p>
+<p>A cofounder of the Free Gaza Movement, Greta Berlin since the early 1960s has advocated for justice for the Palestinian people.<br />She is the mother of two Palestinian/American children, whose father was born and raised in Safad, Palestine.<br />She has been an outspoken advocate for the rights of Palestinians and has spoken and written extensively about what she has witnessed during her three trips to the Occupied West Bank.<br />When not working with Palestinians, Greta has spent 30 years teaching engineers and scientists how to design and deliver presentations.<br />She has been in the West Bank three times since 2003 and was wounded by Israeli gunfire in July 2003 while trying to pull down the gate in the fence at Anin, just outside of Jenin.</p>
+<p> </p>
+<p>Hedy Epstein (86)<br />St. Louis, Missouri, USA</p>
+<p>Hedy was born in Freiburg, Germany on 8/15/1924, the only child of Ella & Hugo Wachenheimer. She lived in Kippenheim, 30 km north of Freiburg, where her father's side of the family had lived for generations. She left Germany at 14,  in1939, on a Kindertransport (children\'s transport), to London, England - one of almost 10,000 mostly Jewish children. <br />Both her parents, as well as other family members, perished in Auschwitz in 1942. In July 1945, she returned to Germany to work for the American government, first with the U.S. Civil Censorship Division and then as a research analyst at the Nuremberg trial of the Nazi doctors who performed medical experiments on concentration camp inmates. <br />In May 1945, she arrived in the United States and quickly became involved in peace and social justice issues.  <br />Since 2003, she has visited Israeli-occupied West Bank five times to witness the effects of Israel's occupation.</p>
+<p> </p>
+<p>Katherine Elliott Sheetz (63)<br />Woods Hole, Mass., USA</p>
+<p><img alt="Kathy_Sheetz" src="images/stories/passenger/Kathy_Sheetz.jpg" height="145" width="142" /></p>
+<p>Kathy Sheetz, 63, is a Registered Nurse with a master's degree in sustainable development.  <br />She has worked on human rights, health and food security, most often in Haiti.</p>
+<p> </p>
+<p>David Schermerhorn (80)<br />Deer Harbor, Washington State, USA</p>
+<p><img alt="DavidS" src="images/stories/passenger/DavidS.jpg" height="169" width="137" /></p>
+<p>David is a commercial film producer and is 80 years young. He was part of the crew of the Free Gaza on its maiden voyage to Gaza in August 2008. He is an explorer, adventurer and has traveled around the world on boats.</p>
+<p> </p>
+<p> </p>

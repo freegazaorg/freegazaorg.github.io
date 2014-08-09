@@ -1,0 +1,20 @@
+---
+layout: post
+title: UK
+joomla_id: 1180
+joomla_url: uk
+date: 2010-05-28 11:02:19.000000000 +02:00
+---
+<p>Alex Harrison (32)<br />London, UK</p>
+<p><img alt="Alex_Harrison" src="images/stories/passenger/Alex_Harrison.jpg" height="120" width="90" /></p>
+<p>Alex Harrison is a solidarity worker living between London and the Middle East. <br />She lived and worked in Balata, Nablus in the West Bank during the intifada. When she tried to visit family in Palestine in 2006 and 2008, the Israeli authorities denied her entry. <br />Alex was on board the Spirit of Humanity (8th Voyage) when Israeli forces hijacked the boat and abducted the passengers. <br />She is determined to return to Palestine and plans to work do long-term human rights monitoring in Gaza.</p>
+<p> </p>
+<p>Theresa McDermott  (43)<br />Edinburgh, Scotland</p>
+<p><img alt="theresa_mcdermott" src="images/stories/passenger/theresa_mcdermott.jpg" height="123" width="130" /></p>
+<p>Theresa McDermott is a postal logistics worker from Edinburgh. She spent a month in Palestine in 2004 with the ISM, and has served as crew on several Free Gaza voyages, including the first trip in 2008, as well as aboard the Spirit in July 2009, when it was highjacked by Israeli naval forces.</p>
+<p> </p>
+<p>Denis Healey (55)</p>
+<p><img alt="denis" src="images/stories/passenger/denis.jpg" height="97" width="127" /></p>
+<p>Denis has been involved with boats for 45 years, beginning with small fishing boats in Portsmouth. <br />He has been captain of the Dignity on several successful voyages to Gaza, and was captain of the Spirit when it was highjacked by Israeli Naval forces in July 2009. <br />Denis learned to sail while at school and has been part of the sea ever since. He's a certified yachtmaster and has also worked on heavy marine equipment from yachts to large dredgers.</p>
+<p> </p>
+<p> </p>

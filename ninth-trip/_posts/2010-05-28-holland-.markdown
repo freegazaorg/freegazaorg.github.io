@@ -1,0 +1,13 @@
+---
+layout: post
+title: HOLLAND
+joomla_id: 1175
+joomla_url: holland-
+date: 2010-05-28 09:57:24.000000000 +02:00
+---
+<p>Annekarijn de Jong (29)<br />Weesp, Holland</p>
+<p> </p>
+<p>Anne de Jong is a Dutch PhD researcher at the School for Oriental and African Studies (SOAS), department of Anthropology.</p>
+<p>Her research interest are popular protest, human rights and for her fieldwork research she spent 16 months in the Occupied Palestinian Territories and Israel, including annexed East-Jerusalem and Besieged Gaza.</p>
+<p> </p>
+<p> </p>

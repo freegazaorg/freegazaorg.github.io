@@ -1,0 +1,15 @@
+---
+layout: post
+title: BELGUIM
+joomla_id: 1177
+joomla_url: belgium
+date: 2010-05-28 10:48:07.000000000 +02:00
+---
+<p>Griet M.A. Deknopper (Margarita) (32)<br />Halle, Belgium</p>
+<p>Margarita is a Belgian solidarity activist and teacher trainer.</p>
+<p> </p>
+<p><br />Inge Neefs (26)<br />Ghent, Belgium</p>
+<p><img alt="Inge_Neefs" src="images/stories/passenger/Inge_Neefs.jpg" height="110" width="83" /></p>
+<p>Inge is a 26 year old woman. She studied educational sciences and holds a master in anthropology. <br />Recently, she spent three months in the West Bank as an activist supporting the non-violent resistance of Palestinians against Israel's military occupation.</p>
+<p> </p>
+<p> </p>
