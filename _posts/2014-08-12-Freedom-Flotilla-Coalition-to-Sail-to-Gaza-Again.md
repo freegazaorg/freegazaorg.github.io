@@ -3,7 +3,6 @@ published: true
 layout: post
 ---
 
-
 August 12, 2014
 The Freedom Flotilla Coalition to Sail to Gaza Again:
 Responding to the Israeli aggression and the  complicity of world governments
@@ -25,22 +24,22 @@ We support the Palestinian demand to open the port of Gaza to international mari
 Finally, we assert that all that we do is peaceful, civil society driven non-governmental actions.
 
 Freedom Flotilla Coalition members:
-European Campaign to End the Siege on Gaza
-Freedom Flotilla Italia
-Gaza's Ark
-IHH
-International Committee for Breaking the Siege on Gaza (ICBSG)
-Rumbo a Gaza
-Ship to Gaza Greece
-Ship to Gaza Norway
-Ship to Gaza Sweden
+
+* European Campaign to End the Siege on Gaza
+* Freedom Flotilla Italia
+* Gaza's Ark
+* IHH
+* International Committee for Breaking the Siege on Gaza (ICBSG)
+* Rumbo a Gaza
+* Ship to Gaza Greece
+* Ship to Gaza Norway
+* Ship to Gaza Sweden
 
 also participating in the project:
-Palestine Solidarity Alliance - South Africa
-Free Gaza
-Haluan Palestin - Malaysia
-Life Line to Gaza - Jordan
-Miles of Smiles
-Sahabat Al-Aqsha
 
-   - 30 -
+* Palestine Solidarity Alliance - South Africa
+* Free Gaza
+* Haluan Palestin - Malaysia
+* Life Line to Gaza - Jordan
+* Miles of Smiles
+* Sahabat Al-Aqsha
