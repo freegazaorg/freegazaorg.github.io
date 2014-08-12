@@ -4,7 +4,6 @@ layout: post
 title: "Gaza's Ark Attacked"
 joomla_id: 1419
 joomla_url: "gazas-ark-attacked"
-date: {}
 ---
 
 <div style="color: #222222; font-family: arial, sans-serif; font-size: 13px; line-height: normal; background-color: #ffffff;"><em><span style="font-family: 'Times New Roman', Times, serif;">Gaza City - Gaza</span></em><br /><span style="font-family: 'Times New Roman', Times, serif;"><br />At <span data-term="goog_994879070" tabindex="0" style="border-bottom-width: 1px; border-bottom-style: dashed; border-bottom-color: #cccccc; position: relative; top: -2px; z-index: 0;"><span style="position: relative; top: 2px; z-index: -1;">3:45 AM</span></span> Gaza time on <span data-term="goog_994879071" tabindex="0" style="border-bottom-width: 1px; border-bottom-style: dashed; border-bottom-color: #cccccc; position: relative; top: -2px; z-index: 0;"><span style="position: relative; top: 2px; z-index: -1;">April 29th</span></span>, the night guard on board Gaza's Ark received a call to leave the boat because it was going to be attacked.<br /><br />The guard left, but when nothing happened, he returned after 5 minutes. A few minutes later, a large explosion rocked the boat causing extensive damage. <br /><br />The boat sank part way and is now sitting on the shallow sea floor. The guard was not injured but was taken to hospital for tests.<br /></span></div>
