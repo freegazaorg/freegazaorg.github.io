@@ -87,6 +87,7 @@ prose:
         - "*js"
         - "*rb"
         - "*xml"
+    media: images
     metadata:
         _posts:
           - name: "layout"
