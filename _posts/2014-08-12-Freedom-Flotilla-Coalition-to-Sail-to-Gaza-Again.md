@@ -6,7 +6,9 @@ layout: post
 August 12, 2014
 The Freedom Flotilla Coalition to Sail to Gaza Again:
 Responding to the Israeli aggression and the  complicity of world governments
- 
+
+![Freedom Flotilla coalition logo](/_posts/FFC-LOGO-sm.png)
+
 The Freedom Flotilla Coalition (FFC) met in Istanbul in the shadow of the latest Israeli aggression on Gaza. We have watched atrocities being committed against an already besieged population. In the two day meeting (August 10th and 11th), the FFC concluded that it is the responsibility of civil society worldwide to sail to Gaza and challenge the Israeli blockade, the source of most problems facing the Palestinian population of Gaza.
 
 We plan to sail to Gaza during 2014, the UN International Year of Solidarity with the Palestinian People: http://unispal.un.org/unispal.nsf/solidarity.htm?OpenForm 
