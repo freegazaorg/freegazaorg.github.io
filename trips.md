@@ -4,6 +4,7 @@ title: Boat trips
 ---
 
 * [Invites to gaza](/invites-to-gaza/)
+* [Testimonies of survivors](/survivor-testimonies/)
 
 ### Boat trips summaries and passengers
 
