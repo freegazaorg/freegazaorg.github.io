@@ -69,4 +69,3 @@ So to all Palestinians in the occupied territories: We are coming. We have not
 forgotten you. We will return. We sail until Palestine is free
 www.freegaza.org
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
