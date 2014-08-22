@@ -16,7 +16,7 @@ Courtney Sheetz, Los Angeles, buflywoman@gmail.com 1 774.255.0842
 Kathy Sheetz, East Coast, US, kathysheetz@hotmail.com 1 508 815 9977
 Mary Hughes Thompson, Los Angeles, daisydozy@gmail.com  1 323 573 1919
 
-### (Los Angeles, August 21, 2014) Six years ago, our two ramshackle boats, Free Gaza and Liberty, were hiding out somewhere in the Mediterranean, battling mechanical problems and bad weather as they slowly and furtively made their way to Cyprus.  Thirty of us impatiently waited for the boats (and the 14 passengers and crew already on the boats) to come and get us. We came from 17 countries, from Palestine to Pakistan, from the U.S. to Europe to Australia, our ages from 81 to 22.
+(Los Angeles, August 21, 2014) Six years ago, our two ramshackle boats, Free Gaza and Liberty, were hiding out somewhere in the Mediterranean, battling mechanical problems and bad weather as they slowly and furtively made their way to Cyprus.  Thirty of us impatiently waited for the boats (and the 14 passengers and crew already on the boats) to come and get us. We came from 17 countries, from Palestine to Pakistan, from the U.S. to Europe to Australia, our ages from 81 to 22.
 
 Finally, on August 21, 2008, they sailed into Larnaca, Cyprus, and we left the
 next day, arriving in Gaza thirty-three hours later, bedraggled and seasick
