@@ -64,7 +64,7 @@ Today on our 6th anniversary, we remember the promises we made to the
 Palestinians of Gaza: 
 
 1. We will return, 
-2: We will take as many Palestinians
+2. We will take as many Palestinians
 out of Gaza as we could (we finally took 28, most of them students who are
 doing very well) and, 
 3. We will let the world know what Israel is doing to an
