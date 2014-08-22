@@ -19,13 +19,9 @@ Mary Hughes Thompson, Los Angeles, daisydozy@gmail.com  1 323 573 1919
 
 (Los Angeles, August 21, 2014) Six years ago, our two ramshackle boats, Free Gaza and Liberty, were hiding out somewhere in the Mediterranean, battling mechanical problems and bad weather as they slowly and furtively made their way to Cyprus.  Thirty of us impatiently waited for the boats (and the 14 passengers and crew already on the boats) to come and get us. We came from 17 countries, from Palestine to Pakistan, from the U.S. to Europe to Australia, our ages from 81 to 22.
 
-
-
 Finally, on August 21, 2008, they sailed into Larnaca, Cyprus, and we left the
 next day, arriving in Gaza thirty-three hours later, bedraggled and seasick
 but overjoyed.
-
-
 
 No foreign vessel had docked in the port of Gaza for 41 years, as Israel
 tightened the screws of its blockade ever tighter, a 20-year blockade they
