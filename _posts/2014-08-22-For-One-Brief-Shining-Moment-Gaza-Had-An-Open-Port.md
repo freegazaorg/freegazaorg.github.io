@@ -6,15 +6,15 @@ layout: post
 FOR IMMEDIATE RELEASE
 Passengers on first trip are available for interviews.
 
-Greta Berlin, France, Iristulip@gmail.com +33 (0) 607 374 512
+Greta Berlin, France, Iristulip@gmail.com +33 (0) 607 374 512  
 Bill Dienst, MD, Pacific NorthWest, billdienst@communitynet.org, 1 509 322
-2595
-Musheir ElFarra, UK, musheir@yahoo.co.uk  +44 (0) 771 504 8821
-Maria del Mar Fernandez, Spain  anamdelmar@gmail.com, +34 671 00 20 15
-David Schermerhorn, Bay Area, djschermerhorn@aol.com 1 415 814 2147
-Courtney Sheetz, Los Angeles, buflywoman@gmail.com 1 774.255.0842
-Kathy Sheetz, East Coast, US, kathysheetz@hotmail.com 1 508 815 9977
-Mary Hughes Thompson, Los Angeles, daisydozy@gmail.com  1 323 573 1919
+2595  
+Musheir ElFarra, UK, musheir@yahoo.co.uk  +44 (0) 771 504 8821  
+Maria del Mar Fernandez, Spain  anamdelmar@gmail.com, +34 671 00 20 15  
+David Schermerhorn, Bay Area, djschermerhorn@aol.com 1 415 814 2147  
+Courtney Sheetz, Los Angeles, buflywoman@gmail.com 1 774.255.0842  
+Kathy Sheetz, East Coast, US, kathysheetz@hotmail.com 1 508 815 9977  
+Mary Hughes Thompson, Los Angeles, daisydozy@gmail.com  1 323 573 1919  
 
 (Los Angeles, August 21, 2014) Six years ago, our two ramshackle boats, Free Gaza and Liberty, were hiding out somewhere in the Mediterranean, battling mechanical problems and bad weather as they slowly and furtively made their way to Cyprus.  Thirty of us impatiently waited for the boats (and the 14 passengers and crew already on the boats) to come and get us. We came from 17 countries, from Palestine to Pakistan, from the U.S. to Europe to Australia, our ages from 81 to 22.
 
