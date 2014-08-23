@@ -8,7 +8,7 @@ In August 2008, our two ramshackle boats, Free Gaza and Liberty, were hiding out
 The next morning, the sun was shining when Free Gaza and Liberty finally pulled out to sea, and 44 passengers, journalists and crew had this overwhelming feeling of joy. We were finally sailing to Gaza. 
 
 
-Crowds lined the dock and cheered us on as Free Gaza cast off her lines and headed out of the port, only to find that Liberty had engine trouble again. We waited for two hours as the engineer climbed down into the engine room and fixed the fan belt. Finally, the Cypriot Coast Guard escorted us to the 12-mile limit before sounding their horns and turning back. We were on our way after working for two years to make the voyage happen, sailing 240 miles across the Mediterranean to the imprisoned people of Gaza. [http://www.amazon.com/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894](http://www.amazon.com/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894)
+Crowds lined the dock and cheered us on as Free Gaza cast off her lines and headed out of the port, only to find that Liberty had engine trouble again. We waited for two hours as the engineer climbed down into the engine room and fixed the fan belt. Finally, the Cypriot Coast Guard escorted us to the 12-mile limit before sounding their horns and turning back. We were on our way after working for two years to make the voyage happen, sailing 240 miles across the Mediterranean to the imprisoned people of Gaza.
 
 
 
