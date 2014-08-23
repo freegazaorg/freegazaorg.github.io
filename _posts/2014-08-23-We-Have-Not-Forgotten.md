@@ -3,7 +3,7 @@ published: true
 layout: post
 ---
 
-In August 2008, our two ramshackle boats, Free Gaza and Liberty, were hiding out somewhere in the Mediterranean, battling mechanical problems and bad weather as they slowly and furtively made their way to Cyprus.  Thirty of us impatiently waited for the boats (and the 14 passengers and crew already on the boats) to come and get us. Finally, on August 21, 2008, they arrived.![](/images/Overjoyedtobethere.jpg)
+In August 2008, our two ramshackle boats, Free Gaza and Liberty, were hiding out somewhere in the Mediterranean, battling mechanical problems and bad weather as they slowly and furtively made their way to Cyprus.  Thirty of us impatiently waited for the boats (and the 14 passengers and crew already on the boats) to come and get us. Finally, on August 21, 2008, they arrived.![(/images/Overjoyedtobethere.jpg)]
 
 The next morning, the sun was shining when Free Gaza and Liberty finally pulled out to sea, and 44 passengers, journalists and crew had this overwhelming feeling of joy. We were finally sailing to Gaza. 
 
