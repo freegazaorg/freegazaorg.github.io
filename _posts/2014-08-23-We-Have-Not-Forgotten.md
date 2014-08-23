@@ -24,7 +24,7 @@ We watched Larnaca twinkle in the distance as a cheer went up from both boats, �
 Even though it was August, it was cold on the water, and we had not prepared ourselves for the damp. After a few hours being tossed about on rough seas, the water had drenched everything and everyone. We had two options; stay above on the deck and be cold and wet, or go down below to the cabins and inhale the diesel fuel. The cabins were dry, but the diesel fuel made even the experienced sailors gag. Most passengers chose to stay above.  
 
 
-Thirty-three long and seasick hours later, we saw the Gaza City skyline gradually appear in front of us. As we got closer, fishing boats packed with people came out to greet us! The breakwater was packed wall-to wall with 40 thousand people cheering our arrival. ![](/images/WelcomedbyEveryone.jpg)
+Thirty-three long and seasick hours later, we saw the Gaza City skyline gradually appear in front of us. As we got closer, fishing boats packed with people came out to greet us! The breakwater was packed wall-to wall with 40 thousand people cheering our arrival. 
 
 
 Hundreds of boys swam out to our boats from the shore, as local fishing boats encircled us. It looked chaotic and dangerous, especially for the fearless young boys in the water. Several dignitaries came aboard our vessels via the fishing boats, and we were served tea and coffee, while we attached a ladder to the sides of our boats to accept those who have swum out from shore. A Boy Scout band played for us from an adjacent boat. 
@@ -43,7 +43,9 @@ Today on our 6th anniversary, we remember the promises we made to the Palestinia
 
 
  
-Two days ago, we received this email from one of our journalist friends living in Cyprus,  “I had lunch on Monday with Sa’ir, the lad you brought out from Gaza on the Free Gaza six years ago. He is at university in his second year, studying graphic design and animation. He is trying to get a new leg as he has outgrown the old one.” 
+Two days ago, we received this email from one of our journalist friends living in Cyprus,  
+>“I had lunch on Monday with Sa’ir, the lad you brought out from Gaza on the Free Gaza six years ago. He is at university in his second year, studying graphic design and animation. He is trying to get a new leg as he has outgrown the old one.” 
+
 An Israeli mortar had sliced off Sa’ir’s leg at the hip in 2006, and there was little hope he would ever walk again. He does, and he is thriving.
 
 
@@ -53,7 +55,7 @@ On September 8, 2014, Musheir ElFarra, the Palestinian from Gaza who was on the 
 >“It was a great feeling to arrive on that boat, a feeling of freedom that I had never experienced. It was the first time in my life that I had visited home without the humiliation of being questioned or interrogated by the Israelis, without being threatened, having my travel documents thrown in my face, and not knowing whether I would be able to get out or not. It is a sense of liberation I hope every Palestinian will experience one day. I am proud of being one of the first Palestinians from the Occupied Territories to enter Palestine without Israeli permission since 1967.” 
 
 
-As we mark the 6th anniversary of our arrival, the Freedom Flotilla Coalition is already planning another voyage, hopefully in 2014, the International Year of Solidarity with the Palestinian people. ](http://unispal.un.org/unispal.nsf/solidarity.htm). 
+As we mark the 6th anniversary of our arrival, the Freedom Flotilla Coalition is already planning another voyage, hopefully in 2014, the International Year of Solidarity with the Palestinian people.[(http://unispal.un.org/unispal.nsf/solidarity.htm).]((http://unispal.un.org/unispal.nsf/solidarity.htm).) 
 
 
 
