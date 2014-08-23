@@ -44,6 +44,7 @@ Today on our 6th anniversary, we remember the promises we made to the Palestinia
 
  
 Two days ago, we received this email from one of our journalist friends living in Cyprus,  
+
 >“I had lunch on Monday with Sa’ir, the lad you brought out from Gaza on the Free Gaza six years ago. He is at university in his second year, studying graphic design and animation. He is trying to get a new leg as he has outgrown the old one.” 
 
 An Israeli mortar had sliced off Sa’ir’s leg at the hip in 2006, and there was little hope he would ever walk again. He does, and he is thriving.
