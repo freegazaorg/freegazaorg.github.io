@@ -3,7 +3,7 @@ published: true
 layout: post
 ---
 
-In August 2008, our two ramshackle boats, Free Gaza and Liberty, were hiding out somewhere in the Mediterranean, battling mechanical problems and bad weather as they slowly and furtively made their way to Cyprus.  Thirty of us impatiently waited for the boats (and the 14 passengers and crew already on the boats) to come and get us. Finally, on August 21, 2008, they arrived.![(/images/Overjoyedtobethere.jpg)]
+In August 2008, our two ramshackle boats, Free Gaza and Liberty, were hiding out somewhere in the Mediterranean, battling mechanical problems and bad weather as they slowly and furtively made their way to Cyprus.  Thirty of us impatiently waited for the boats (and the 14 passengers and crew already on the boats) to come and get us. Finally, on August 21, 2008, they arrived.
 
 The next morning, the sun was shining when Free Gaza and Liberty finally pulled out to sea, and 44 passengers, journalists and crew had this overwhelming feeling of joy. We were finally sailing to Gaza. 
 
@@ -24,7 +24,7 @@ We watched Larnaca twinkle in the distance as a cheer went up from both boats, â
 Even though it was August, it was cold on the water, and we had not prepared ourselves for the damp. After a few hours being tossed about on rough seas, the water had drenched everything and everyone. We had two options; stay above on the deck and be cold and wet, or go down below to the cabins and inhale the diesel fuel. The cabins were dry, but the diesel fuel made even the experienced sailors gag. Most passengers chose to stay above.  
 
 
-Thirty-three long and seasick hours later, we saw the Gaza City skyline gradually appear in front of us. As we got closer, fishing boats packed with people came out to greet us! The breakwater was packed wall-to wall with 40 thousand people cheering our arrival. 
+Thirty-three long and seasick hours later, we saw the Gaza City skyline gradually appear in front of us. As we got closer, fishing boats packed with people came out to greet us! The breakwater was packed wall-to wall with 40 thousand people cheering our arrival. ![](/images/WelcomedbyEveryone.jpg)
 
 
 Hundreds of boys swam out to our boats from the shore, as local fishing boats encircled us. It looked chaotic and dangerous, especially for the fearless young boys in the water. Several dignitaries came aboard our vessels via the fishing boats, and we were served tea and coffee, while we attached a ladder to the sides of our boats to accept those who have swum out from shore. A Boy Scout band played for us from an adjacent boat. 
