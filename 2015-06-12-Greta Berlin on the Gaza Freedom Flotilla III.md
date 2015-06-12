@@ -3,6 +3,7 @@ published: true
 layout: page
 ---
 
+
 Mike Burch: Greta Berlin is an American peace activist who supports the Palestinian people in their quest to obtain freedom, equal rights and justice. She has been a spokesperson for the Free Gaza Movement, which she co-founded in 2006. She was one of the freedom sailors on the first outside vessel to reach Gaza since Israel established its blockade, and she co-edited the book Freedom Sailors, which recounts the perilous voyage. This interview was conducted via e-mail, and the hyperlinks below were furnished by Greta Berlin along with her answers to Mike Burch's questions.
 
 MB: Greta, let me ask you point blank. You have been accused of being an anti-Semite. Do you hate and despise Jews, or is there some other reason for your criticism of Israel?
@@ -70,5 +71,3 @@ GB: Advocate; write; speak; join groups that support the rights of Palestinians;
 You can also follow Free Gaza on our Twitter account at https://twitter.com/freegazaorg or Freedom Flotilla III at https://twitter.com/GazaFFlotilla. There are no spaces on board the next flotilla, as there are only three small boats, but if anyone has any powerful or influential person who might want to go, please contact Free Gaza at Iristulip@gmail.com.
 
 MB: Greta, thanks so much for your time, and for all you have through the years for Gaza and the Palestinian people. I, for one, will be following your lead!
-
-
