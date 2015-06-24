@@ -1,13 +1,13 @@
 ---
 published: true
 layout: home
-description: A responsive Jekyll theme with editorial tendencies by designer Michael Rose.
+description:      "A human rights organization that challenges Israel's illegal siege on Gaza"
 tags: 
-  - Jekyll
-  - theme
-  - responsive
-  - blog
-  - template
+  - Palestine
+  - Gaza
+  - Flotilla
+  - Boats
+  - Freedom
 image: 
   feature: header.jpg
 ---
