@@ -4,17 +4,12 @@ layout: post
 ---
 
 
+
 with Mike Burch
 
 Greta Berlin is an American peace activist who supports the Palestinian people in their quest to obtain freedom, equal rights and justice. She has been a spokesperson for the Free Gaza Movement, which she co-founded in 2006. She was one of the freedom sailors on the first outside vessel to reach Gaza since Israel established its blockade, and she co-edited the book Freedom Sailors, which recounts the perilous voyage. This interview was conducted via e-mail, and the hyperlinks below were furnished by Greta Berlin along with her answers to Mike Burch's questions.
 
-MB: Greta, let me ask you point blank. You have been accused of being an anti-Semite. Do you hate and despise Jews, or is there some other reason for your criticism of Israel?
-
-GB: The mark of someone who is effective at challenging Israel’s genocidal policies is that we are called anti-Semites. I join a long list, from Stephen Hawking to Nelson Mandela to Desmond Tutu to Roger Waters to Selma Hayak. I’m in good company, since all of these celebrities (and many more) stand for justice for Palestinians. What makes my ongoing criticism sting to those Zionists who are big supporters of Israeli actions is that (1) I have been supporting justice for Palestine for 47 years, and the best they could do is find one tweet I posted about Zionists working in tandem with Nazis, (2) my feet have gone where my mouth goes, from working in the occupied West Bank to getting on board that first boat to Gaza, and (3) I am not interested in being politically correct.
-
-I don’t like bullies, and I don’t care if that bully is a white kid on the playground or a Jew in occupied Palestine. Finally, I was married for 14 years to an Arab and 14 years to a Jew, and if anyone has the right to be anti-Semitic… I do. They ended up liking each other better than I liked either one of them.  (For those of you with no sense of humor… you haven’t spent 28 years of your life married to Semites!)
-
-MB: Greta, I do appreciate your irony, and I can certainly sympathize about the false charges of anti-Semitism, since I'm an editor and publisher of Holocaust poetry, and yet I get called an anti-Semite for opposing Israel’s treatment of Palestinians. But let's forge ahead. Why did you and your associates decide to send boats to Gaza?
+MB: Why did you and your associates decide to send boats to Gaza?
 
 GB: Israel was busy massacring the civilians in Lebanon in 2006. Many of us who had gone to the occupied territories to work with the International Solidarity Movement (ISM) were emailing each other on a Google group (this was way before social media exploded) and trying to figure out how to keep the plight of the Palestinians, especially those in Gaza, on the front page.
 
