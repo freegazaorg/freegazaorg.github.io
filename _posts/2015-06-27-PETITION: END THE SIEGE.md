@@ -13,7 +13,7 @@ layout: post
 PALESTINE ACTION NETWORK (PAN) 
 Global Citizens advocating for Peace, Justice, Freedom and Human Rights
 
-    We, the Undersigned, call on the United Nations to demand that the State of Israel end its crippling blockade of Gaza or face sanctions.[Petition]( http://tinyurl.com/ofk3qgm for the petition)
+ We, the Undersigned, call on the United Nations to demand that the State of Israel end its crippling blockade of Gaza or face sanctions.[Petition]( http://tinyurl.com/ofk3qgm for the petition)
 
     Smaller than Dublin, Ireland, Gaza is one of the most densely populated places on earth. 80% of its nearly 2 million residents are refugees from other parts of Israel-Palestine who were expelled from their homes in 1948 and 1967, making it the world's largest refugee camp.
 
@@ -22,6 +22,8 @@ Global Citizens advocating for Peace, Justice, Freedom and Human Rights
     This siege, which Israel does not formally acknowledge, is illegal.  It devastates the Gazan economy, impedes reconstruction from past bombings, separates families, prevents students from studying abroad, and hurts fishermen and farmers, who cannot pursue their livelihoods near the Buffer Zone without risk of being shot.  It denies Gazans' legal right to live in peace, freedom and dignity, to resist military occupation, and to flee when attacked, as many of them once did to arrive in Gaza.
 
     For these and many other reasons, we call on the UN to pass a resolution urging all members to impose economic and political sanctions on Israel until it lifts the siege and gives the people of Gaza the chance to live a normal life.
+
+   
 
     Respectfully,
 
