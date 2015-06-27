@@ -44,7 +44,7 @@ Mary Ellen Bennett, USA, Human Rights Activist
 
 
 CITATIONS
-1. Farming without Land, Fishing without Water: Gaza Agriculture Sector Struggles to Survive (2010) - See more at: http://unispal.un.org/UNISPAL.NSF/0/9A265F2A909E9A1D8525772E004FC34B
+1. Farming without Land, Fishing without Water: Gaza Agriculture Sector Struggles to Survive (2010) - See more at: [Farming without land](http://unispal.un.org/UNISPAL.NSF/0/9A265F2A909E9A1D8525772E004FC34B)
 2. The blockade on Gaza began long before Hamas came to power (2011) - See more at: http://972mag.com/the-blockade-on-gaza-began-long-before-hamas-came-to-power/17491/
 3. GAZA IN 2020 A liveable place? (2012) See more at: http://www.unrwa.org/userfiles/file/publications/gaza/Gaza%20in%202020.pdf
 4. GAZA WATER FACT SHEET (2014) - See more at:
