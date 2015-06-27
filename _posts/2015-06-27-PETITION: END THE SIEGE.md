@@ -7,12 +7,13 @@ layout: post
 
 
 
+
 ![PAN.jpg]({{site.baseurl}}/images/PAN.jpg)
 
 PALESTINE ACTION NETWORK (PAN) 
 Global Citizens advocating for Peace, Justice, Freedom and Human Rights
 
-We, the Undersigned, call on the United Nations to demand that the State of Israel end its crippling blockade of Gaza or face sanctions.[Petition]( http://tinyurl.com/ofk3qgm for the petition)
+    We, the Undersigned, call on the United Nations to demand that the State of Israel end its crippling blockade of Gaza or face sanctions.[Petition]( http://tinyurl.com/ofk3qgm for the petition)
 
     Smaller than Dublin, Ireland, Gaza is one of the most densely populated places on earth. 80% of its nearly 2 million residents are refugees from other parts of Israel-Palestine who were expelled from their homes in 1948 and 1967, making it the world's largest refugee camp.
 
