@@ -25,20 +25,21 @@ Global Citizens advocating for Peace, Justice, Freedom and Human Rights
 
     Respectfully,
 
-    *  Miko Peled, Author, “The General’s Son”
+    Miko Peled, Author, “The General’s Son”
 
-    *  Ronnie Barkan, Founder, Boycott From Within
+    Ronnie Barkan, Founder, Boycott From Within
 
-    *  Dr. Peter Cohen, H4P, PAN, HEFF3G
+    Dr. Peter Cohen, H4P, PAN, HEFF3G
 
-    *  Greta Berlin, France, Co-founder, Free Gaza movement;
+    Greta Berlin, France, Co-founder, Free Gaza movement;
 Passenger on 1st Free Gaza and 11th US Boat to Gaza voyages 
 
-    *  Mary Hughes Thompson, Canada, Co-founder, Free Gaza movement;
+    Mary Hughes Thompson, Canada, Co-founder, Free Gaza movement;
 Passenger on 1st Free Gaza and 11th Canadian Tahrir voyages
 
-    *  Jafar Ramini, UK, Political Writer/Analyst, Commentator
-Mary Ellen Bennett, USA, Human Rights Activist
+    Jafar Ramini, UK, Political Writer/Analyst, Commentator
+
+     Mary Ellen Bennett, USA, Human Rights Activist
 
 
     CITATIONS
