@@ -5,6 +5,7 @@ layout: post
 
 
 
+
 ![PAN.jpg]({{site.baseurl}}/images/PAN.jpg)
 
 PALESTINE ACTION NETWORK (PAN) 
@@ -31,25 +32,24 @@ For these and many other reasons, we call on the UN to pass a resolution urging 
 
  
 Respectfully,
-Miko Peled, Author, “The General’s Son”
-Ronnie Barkan, Founder, Boycott From Within
-Dr. Peter Cohen, H4P, PAN, HEFF3G
-Greta Berlin, France, Co-founder, Free Gaza movement;
+*  Miko Peled, Author, “The General’s Son”
+*  Ronnie Barkan, Founder, Boycott From Within
+*  Dr. Peter Cohen, H4P, PAN, HEFF3G
+*  Greta Berlin, France, Co-founder, Free Gaza movement;
 Passenger on 1st Free Gaza and 11th US Boat to Gaza voyages 
-Mary Hughes Thompson, Canada, Co-founder, Free Gaza movement;
+*  Mary Hughes Thompson, Canada, Co-founder, Free Gaza movement;
 Passenger on 1st Free Gaza and 11th Canadian Tahrir voyages
-Jafar Ramini, UK, Political Writer/Analyst, Commentator
+*  Jafar Ramini, UK, Political Writer/Analyst, Commentator
 Mary Ellen Bennett, USA, Human Rights Activist
 
 
 CITATIONS
-1.	Farming without Land, Fishing without Water: Gaza Agriculture Sector Struggles to Survive (2010) - See more at: http://unispal.un.org/UNISPAL.NSF/0/9A265F2A909E9A1D8525772E004FC34B
-2.	The blockade on Gaza began long before Hamas came to power (2011) - See more at: http://972mag.com/the-blockade-on-gaza-began-long-before-hamas-came-to-power/17491/
-3.	GAZA IN 2020 A liveable place? (2012) See more at: http://www.unrwa.org/userfiles/file/publications/gaza/Gaza%20in%202020.pdf
-4.	GAZA WATER FACT SHEET (2014) - See more at:
+1. Farming without Land, Fishing without Water: Gaza Agriculture Sector Struggles to Survive (2010) - See more at: http://unispal.un.org/UNISPAL.NSF/0/9A265F2A909E9A1D8525772E004FC34B
+2. The blockade on Gaza began long before Hamas came to power (2011) - See more at: http://972mag.com/the-blockade-on-gaza-began-long-before-hamas-came-to-power/17491/
+3. GAZA IN 2020 A liveable place? (2012) See more at: http://www.unrwa.org/userfiles/file/publications/gaza/Gaza%20in%202020.pdf
+4. GAZA WATER FACT SHEET (2014) - See more at:
 http://www.irinnews.org/pdf/pwa_gaza_water_fact_sheet_3-2014.pdf
-5.	Gaza Strip: Over 90% of water in Gaza Strip unfit for drinking (2014) See more at:
+5. Gaza Strip: Over 90% of water in Gaza Strip unfit for drinking (2014) See more at:
 http://www.btselem.org/gaza_strip/20140209_gaza_water_crisis
-6.	Attacks on Gaza: January - March 2015 - See more at:
+6. Attacks on Gaza: January - March 2015 - See more at:
 https://www.middleeastmonitor.com/specials/gaza_incidents/
-
