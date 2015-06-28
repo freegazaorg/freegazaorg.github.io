@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: home
 description: "A human rights organization that challenges Israel's illegal siege on Gaza"
 tags: 
