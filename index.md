@@ -24,4 +24,4 @@ image:
    The 10th voyage which was to leave Greece in July 2011 was held in port by Greece security forces when they caved in to pressure from Israel and the US, as these two countries outsourced the occupation to Greece. There have been several waves of boats that have tried to break the seige since then, including a Jewish boat, the Canadian boat, Tahrir, and the Swedish boat, the Estelle. 
 
    All have failed to sail into Gaza, because they have been violently stopped by the Israeli military. However, we made a promise to return, and we continue to work with other initiatives to send boats to this tiny enclave in the Mediterranean, the only country that has no access to its own sea. 
-    For addition information or for media interviews, contact us at Freedom4Sailors@gmail.com 
+    For additional information or for media interviews, contact us at Freedom4Sailors@gmail.com 
