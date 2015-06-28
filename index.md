@@ -15,7 +15,6 @@ image:
 
 
     Free Gaza is a human rights group founded in 2006. Our mission is to break the Israel's illegal siege on Gaza's 1.8 million civilians, since it inflicts collective punishment on the Palestinians who live there and has destroyed its economy.
-
 15 flotillas or waves have been launched since August 2008, five have succeeded in making it to Gaza. After Operation Cast lead, the Israeli military attacked our small boats three times. 
 
 When we were attacked in July 2009, Free Gaza decided to organize a much larger flotilla with the help of IHH, the European Campaign to End the Siege and three other smaller initiatives. We set sail in May 2010, as Freedom Flotilla I. This was our 9th voyage. Israel's lethal attack on all six boats killed 10 people and wounded over 60.
