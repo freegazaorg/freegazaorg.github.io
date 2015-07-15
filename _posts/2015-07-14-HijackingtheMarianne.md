@@ -3,6 +3,7 @@ published: true
 layout: post
 ---
 
+
    In the early morning of June 29th, armed Israeli commandos raided the Swedish fishing trawler, 'Marianne', part of a 4-ship flotilla on its way to Gaza. These well-armed commandos attacked 100 nautical miles from Gaza in international waters, a violation of international maritime law. It was the 15th attempt to sail into the blockaded port, the first 5 successful.
 
    The Israeli PR mouthpieces in Tel Aviv said the boarding was ‘uneventful.’ That is a lie.
@@ -33,8 +34,5 @@ Ironically, Kevin Niesh, another freedom sailor on the “Marianne,’ wrote to 
    Sign and share the petition demanding the UN take action [https://www.change.org/p/we-call-on-the-president-of-the-un-security-council-to-pass-a-resolution-urging-all-members-to-impose-economic-and-political-sanctions-on-israel-until-it-lifts-the-siege ](https://www.change.org/p/we-call-on-the-president-of-the-un-security-council-to-pass-a-resolution-urging-all-members-to-impose-economic-and-political-sanctions-on-israel-until-it-lifts-the-siege )
    
    Support the BDS movement.[www.bdsmovement.net](www.bdsmovement.net)
-
-
-
-
-
+   
+   
