@@ -1,7 +1,8 @@
 ---
-published: true
+published: false
 layout: post
 ---
+
 
 
    What this Haaretz article does not cover is one of the reasons this case was reopened. Many of you who had been on the DIGNITY and SPIRIT OF HUMANITY voyages in December 2008, January 2009 and July 2009 filled out the ICC forms stating that what Israel did was not a one-off attack on Freedom Flotilla I. Free Gaza board members, Audrey Bomse and Greta Berlin, along with the lawyers from the UK, put all of these testimonies together and sent them to the law offices in the UK who then filed them with the ICC.
@@ -35,4 +36,3 @@ layout: post
    Still, the judges’ ruling has wider implications for preliminary examinations by the prosecutor on Israeli-Palestinian issues. The decision will make it difficult for her not to investigate alleged war crimes by both sides in last summer’s Gaza war, especially in light of the recent report by a UN commission of inquiry. Also, the decision might accelerate her launching of an investigation into construction in the settlements as well.
 
    The judges sent a clear message: The fact that the Israeli-Palestinian conflict is a hot potato does not deter the court, whose intervention is justified by the intense international interest in the issue. These moves show that Israel’s political-legal tangling with the court is only beginning.
-
