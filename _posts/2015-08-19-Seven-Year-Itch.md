@@ -4,6 +4,7 @@ published: true
 
 
 
+
 ## **The Seven Year Itch: or Maybe It's Time to Try Something Different**
 
 
@@ -21,7 +22,7 @@ _“My mum came to my room with a smile on her face, ''Jamal, the boats are visi
     
    Two years, thousands of volunteers, $700,000 raised from donors around the world, 44 activists, none of us famous… all boiled down to this moment, the moment we sailed into port to the shouts and whistles of an imprisoned people who thought everyone had forgotten them. 
 
-[[https://www.facebook.com/FreedomSailorsGaza/videos/vb.261434850633204/607046236072062/?type=2&theater]]([https://www.facebook.com/FreedomSailorsGaza/videos/vb.261434850633204/607046236072062/?type=2&theater])
+[Arriving in Gaza](https://www.facebook.com/FreedomSailorsGaza/videos/vb.261434850633204/607046236072062/?type=2&theater)
 
  Here is how we felt, best described in the poem of Vittorio Arrigoni on that wonderful day when everyone thought there was hope for freedom and justice for Palestinians. We might finally open the only border that Israel had no right to control. They said to the world that Gaza was free. Our arrival solidified that. 
  
@@ -63,4 +64,4 @@ It was a great feeling, a feeling of freedom that I had never experienced. It wa
    Greta Berlin and Mary Hughes Thompson, Co-Founders, The Free Gaza movement.
    Illustration courtesty of Carl John Freeman.
    
-   For the story of our first voyage, please buy Freedom Sailors at [http://www.amazon.fr/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894](http://www.amazon.fr/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894)
+   For the story of our first voyage, please buy Freedom Sailors at [http://www.amazon.com/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894/ref=cm_rdp_product](http://www.amazon.com/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894/ref=cm_rdp_product)
