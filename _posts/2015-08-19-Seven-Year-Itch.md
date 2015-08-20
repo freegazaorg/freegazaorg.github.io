@@ -2,7 +2,9 @@
 published: true
 ---
 
-![Screen Shot 2015-08-17 at 8.09.14 AM.png]({{site.baseurl}}/images/Screen Shot 2015-08-17 at 8.09.14 AM.png) 
+
+
+![Balloon.jpg]({{site.baseurl}}/images/Balloon.jpg) 
 
 _“My mum came to my room with a smile on her face, ''Jamal, the boats are visible on TV.'' So I jumped from my bed and asked her, ''When?'' She said, “It is just breaking news.” I can't remember how, when, or why I found myself on a bus going back to the port with the scouts. I can't remember how we managed to be together again going to the Port of Gaza. We all jumped on board different fishing boats and sailed to the open sea again. There, on the horizon, I saw three elements: A beautiful sunset, the Liberty, and the Free Gaza. On the east side of the Port, more and more people from Gaza were gathering. This time, their disappointed faces were not there. We could hear the people laughing high and delighted as they strained to catch sight of the boats.” Jamal Al Attar, August 23, 2008_
 
@@ -54,16 +56,3 @@ It was a great feeling, a feeling of freedom that I had never experienced. It wa
    Greta Berlin and Mary Hughes Thompson, Co-Founders, The Free Gaza movement.
    
    For the story of our first voyage, please buy Freedom Sailors at [http://www.amazon.fr/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894](http://www.amazon.fr/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894)
-
-
-
-
-
-
-
-
-
-
-
-
-
