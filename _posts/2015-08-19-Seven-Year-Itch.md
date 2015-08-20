@@ -3,6 +3,7 @@ published: true
 ---
 
 
+
 ## **The Seven Year Itch: or Maybe It's Time to Try Something Different**
 
 
@@ -60,5 +61,6 @@ It was a great feeling, a feeling of freedom that I had never experienced. It wa
    Perhaps it’s time to look at a different tactic. We proved that we could break the siege by sea. Maybe it’s time to break the siege by air… hot air balloons? Fixed wing planes? Small helicopters? Hang gliders? We’re thinking, and that makes us dangerous to the Israeli authorities.
    
    Greta Berlin and Mary Hughes Thompson, Co-Founders, The Free Gaza movement.
+   Illustration courtesty of Carl John Freeman.
    
    For the story of our first voyage, please buy Freedom Sailors at [http://www.amazon.fr/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894](http://www.amazon.fr/Freedom-Sailors-movement-succeeded-ourselves/dp/0615654894)
