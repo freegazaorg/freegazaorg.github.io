@@ -400,7 +400,7 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 **Prof.Dr. Alfred Grosser**: Peace prize winner of the German Booksellers (Friedenspreisträger des deutschen Buchhandels) Paris, France
 
 
-**Serge Grossvak**: Director of Social Center, member of l'UJRE (Directeur de Centre Social, membre de l'UJRE - Union des Juifs pour la Résistance et l'Entraide), Marseille, France
+**Serge Grossvak**: Director of Social Center, member l'UJRE (Directeur de Centre Social, membre de l'UJRE, Union des Juifs pour la Résistance et l'Entraide), Marseille, France
 
 
 **Diane Guildoni**: Free Speech Supporter, Missouri, USA
