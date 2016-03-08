@@ -521,7 +521,7 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 **Dr. Janice McLaughlin**: MM, Zimbabwe, former President of Maryknoll Sisters, (imprisoned by colonial regime in Rhodesia), New York, USA
 
 
-**Joe Meadors**: USS Liberty Survivor, Freedom Flotillas I, II and III Participant, USA
+**Joe Meadors**: USS Liberty Survivor, Freedom Flotillas I/II/III Passenger, USA
 
 
 **Prof. Dr. Georg Meggle**: Universität Leipzig - Dir. Institut für Philosophie (emerit.), AUC, American University in Cairo, Germany
