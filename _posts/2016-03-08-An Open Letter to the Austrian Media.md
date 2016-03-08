@@ -45,7 +45,6 @@ Nobel Peace Prize winner Archbishop Desmond Tutu does not think so. In a 2014 Ha
 
 In 2013, Mr. Tutu noted: 'It is no more wrong to call out Israel in particular for its abuses than it was to call out the Apartheid regime in particular for its abuses… It is not with rancor that we criticize the Israeli government, but with hope, a hope that a better future can be made for both Israelis and Palestinians, a future in which both the violence of the occupier and the resulting violent resistance of the occupied come to an end, and where one people need not rule over another, engendering suffering, humiliation, and retaliation. True peace must be anchored in justice and an unwavering commitment to universal rights for all humans, regardless of ethnicity, religion, gender, national origin or any other identity attribute.
 
-'
 Another Nobel Peace Prize laureate, Mairead Maguire, has said: 'I hope we can agree that breaking the Silence on Palestine, and insisting that people have a right to know what governments are doing in their name, is a way in which we all, especially journalists, media, can help… We can especially pledge to support the ongoing Palestinian and Israeli HR and peace movements for justice believing that genuine diplomacy, dialogue and listening brings us to a new understanding of each other, being the only way to peace.'
 
 **Historical Precedent**
@@ -53,10 +52,12 @@ Another Nobel Peace Prize laureate, Mairead Maguire, has said: 'I hope we can ag
 
 This is not the first time that a prominent supporter of Palestinian rights has been silenced in Austria. There have been multiple cases, such as in 2001, when the cultural critic and public intellectual Edward Said was disinvited to speak at the Freud Society. The Society's president explained that the cancellation arose from the desire to avoid 'an internal clash.'
 
-Mr. Said later noted: > 'Freud was hounded out of Vienna because he was a Jew. Now I am hounded out because I'm a Palestinian.
+Mr. Said later noted: _'Freud was hounded out of Vienna because he was a Jew. Now I am hounded out because I'm a Palestinian._
 
-After the Freud Society revoked Mr. Said’s invitation, a group of distinguished psychoanalysts and psychoanalytic critics wrote a letter of protest. The London Freud Museum invited Mr. Said to deliver the lecture he was to have given in Vienna. The Austrian Society for Literature and the Vienna-based Institute for the Human Sciences also subsequently invited Mr. Said to speak. 
+After the Freud Society revoked Mr. Said’s invitation, a group of distinguished psychoanalysts and psychoanalytic critics wrote a letter of protest. The London Freud Museum invited Mr. Said to deliver the lecture he was to have given in Vienna. The Austrian Society for Literature and the Vienna-based Institute for the Human Sciences also subsequently invited Mr. Said to speak.
+
 The issue was not whether people agreed with Mr. Said's opinion, but that they defended his right to express it.
+
 
 **Journalistic Responsibility**
 
@@ -92,38 +93,40 @@ __________________
 **Dr. h.c. Hans-C. Graf Sponeck**: Former Assistant UN Secretary General, moreover, inter alia UN Coordinator in Islamabad, New Delhi and Baghdad (ehemaliger Beigeordneter UNO General-Sekretär, darüber hinaus inter alia UN Koordinator in Islamabad, Neu Delhi und Bagdad) 
 
 **Alice Walker**: American novelist, short story writer, poet, and activist. Winner of the Pulitzer Prize for Fiction.
+
 ________________
 
-Avigail Abarbanel: Psychotherapist, Inverness, Scotland
-Paula Abrams-Hourani: Founder, Women in Black, Vienna, Austria
-Kaveh Ahangar: Rapper, activist, journalist, Berlin, Germany
-J'Ann Schoomaker Allen: Missouri, USA
-James D. Allen Jr., PhD: Missouri, USA
-Teresa Arrietta: Journalist, Kritzendorf, Austria
-Ofra Ben Artzi: Israeli citizen
-Alice Bach: Professor of religious studies, anti-war activist, journalist, Cleveland, USA
-Dr. Wolfgang Bahr: Journalist, translator, reader (Journalist, Übersetzer und Verlagslektor) Vienna, Austria
-Frank Barat: Coordinator Russell Tribunal on Palestine, Belgium 
-Ronnie Barkan: Israeli dissident Boycott from Within, Israel
-Ramzy Baroud, Ph.D.: Author and journalist, Washington, USA
-Dr. Georg Becker: Vienna, Austria
-Dr. Johannes M. Becker: Associate Professor, Peace Research (Privatdozent, Friedensforscher) Universität Marburg, Germany
-Medea Benjamin: Author, Co-Founder of Code Pink, USA 
+
+**Avigail Abarbanel**: Psychotherapist, Inverness, Scotland
+**Paula Abrams-Hourani**: Founder, Women in Black, Vienna, Austria
+**Kaveh Ahangar**: Rapper, activist, journalist, Berlin, Germany
+**J'Ann Schoomaker Allen**: Missouri, USA
+**James D. Allen Jr**., PhD: Missouri, USA
+**Teresa Arrietta**: Journalist, Kritzendorf, Austria
+**Ofra Ben Artzi**: Israeli citizen
+**Alice Bach**: Professor of religious studies, anti-war activist, journalist, Cleveland, USA
+**Dr. Wolfgang Bahr**: Journalist, translator, reader (Journalist, Übersetzer und Verlagslektor) Vienna, Austria
+**Frank Barat**: Coordinator Russell Tribunal on Palestine, Belgium 
+**Ronnie Barkan**: Israeli dissident Boycott from Within, Israel
+**Ramzy Baroud**, Ph.D.: Author and journalist, Washington, USA
+**Dr. Georg Becker**: Vienna, Austria
+**Dr. Johannes M. Becker**: Associate Professor, Peace Research (Privatdozent, Friedensforscher) Universität Marburg, Germany
+**Medea Benjamin**: Author, Co-Founder of Code Pink, USA 
 Univ.Prof.Dr. med. Ernst Berger: Specializing in psychiatry and neurology, Vienna, Austria 
-Greta K Berlin, MFA: Co-founder, Free Gaza movement, author/editor, Freedom Sailors, France
-Randy Bernard: Writer/Editor, North Carolina, USA 
-Judith Bernstein: Jewish-Palestinian Dialogue Group Munich (jüdisch-palästinensische Dialoggruppe München), Germany
-Stephen Bingham: Attorney, past President, San Francisco Bay Area Chapter, National Lawyers Guild, USA
-Jeffrey Blankfort: Radio journalist, former Editor, Middle East Labor Bulletin
-Walter P. Blass, B.A. Honors, M.A.: Dual Austrian/American nationality, North Carolina, USA
-Harald Moritz Bock: Secretary General of the German-Arab Society D-A-G (Generalsekretär DEUTSCH-ARABISCHE GESELLSCHAFT), Berlin, Germany
-Barbara Bogard, BA, BS, MA: Co-Founder and Chair of Pesticide Free Marin, Women's International League for Peace & Freedom, USA
-Audrey Bomse: Attorney, Member, National Lawyers Guild and co-chair of Palestine subcommittee, USA
-Lauren Booth: Journalist, broadcaster and blogger, UK
+**Greta K Berlin**, MFA: Co-founder, Free Gaza movement, author/editor, Freedom Sailors, France
+**Randy Bernard**: Writer/Editor, North Carolina, USA 
+**Judith Bernstein:** Jewish-Palestinian Dialogue Group Munich (jüdisch-palästinensische Dialoggruppe München), Germany
+**Stephen Bingham**: Attorney, past President, San Francisco Bay Area Chapter, National Lawyers Guild, USA
+**Jeffrey Blankfort**: Radio journalist, former Editor, Middle East Labor Bulletin
+**Walter P. Blass**, B.A. Honors, M.A.: Dual Austrian/American nationality, North Carolina, USA
+**Harald Moritz Bock**: Secretary General of the German-Arab Society D-A-G (Generalsekretär DEUTSCH-ARABISCHE GESELLSCHAFT), Berlin, Germany
+**Barbara Bogard**, BA, BS, MA: Co-Founder and Chair of Pesticide Free Marin, Women's International League for Peace & Freedom, USA
+**Audrey Bomse**: Attorney, Member, National Lawyers Guild and co-chair of Palestine subcommittee, USA
+**Lauren Booth**: Journalist, broadcaster and blogger, UK
 Dr. Mark J.  Boyd, PhD: North Carolina, USA
-AnnaLisa Erdemgil Brandstätter: Vienna, Austria
-Dr. (theol.) Martin Breidert, Germany
-Diana Buttu: Attorney 
+**AnnaLisa Erdemgil Brandstätter**: Vienna, Austria
+**Dr. (theol.) Martin Breidert**, Germany
+**Diana Buttu**: Attorney 
 Mark Chmiel: Professor of Humanities, Maryville University, Missouri, USA; author of "Eli Wiesel & the Politics of Moral Leadership"
 Kia Corthron: Novelist/playwright, USA
 Anne Herzon Craig, M.Ed.: North Carolina, USA
