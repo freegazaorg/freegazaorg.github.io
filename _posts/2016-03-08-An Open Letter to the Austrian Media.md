@@ -421,113 +421,255 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 
 
 **Chris Hedges**: Pulitzer-prize winning journalist and former Middle East Bureau Chief for The New York Times, USA
-**Shir Hever**: Heidelberg, Germany 
+
+
+**Shir Hever**: Heidelberg, Germany
+
+
 **Joyce Holliday**: Author, United Church of Christ Minister, North Carolina, USA
+
+
 **Tikva Honig-Parnass**, PhD: Jerusalem, Israel
+
+
 **Jocelyn Hurndall**: Mother of Tom Hurndall, International Solidarity Movement (ISM) volunteer who was shot in the head by an Israeli sniper
+
+
 **Patricia Hynes**, MS JD: North Carolina, USA
+
+
 
 
 **Israeli Committee Against House Demolitions (ICAHD)**
 
 
+
+
 **Priv.-Doz. Anne Maximiliane Jäger-Gogoll**: Philipps-Universität Marburg, Germany
+
+
 **Dahr Jamail**: Journalist, author, recipient of the 2008 Martha Gellhorn Prize for Journalism, USA
+
+
 **Jane Jewell**, L.R.A.M. B.A. (mus) Hons, USA
 
 
+
+
 **Dr. Ghada Karmi**: Palestinian academic and Research Fellow, Institute of Arabic and Islamic Studies, University of Exeter, UK
+
+
 **Rev. Dr. R. David Kaylor**: Professor of Religion, Emeritus, Davidson College, North Carolina, USA
+
+
 **Dr. Elizabeth B. Keiser**: Charles A. Dana Professor Emerita, English Dept., Guilford College, North Carolina, USA
+
+
 **Dr. R. Melvin Keiser**: Professor Emeritus, Religious Studies Dept., Guilford College, North Carolina, USA
+
+
 **Ramsis Kilani**: Student, his father, five of his siblings and his father’s second wife (all German citizens) were killed in Gaza during "Operation Protective Edge," Universität Siegen, Germany
-**Martha King**: Human rights activist, Missouri, USA  
+
+
+**Martha King**: Human rights activist, Missouri, USA
+
+
 **Christopher Ben Kushka**: Human rights activist, (BDS + ISM), Ungedanken, Germany
 
 
 
+
+
 **Susan Larhrop**: President, Just Peace for Israel/Palestine, North Carolina, USA
+
+
 **Derek Laney**: Co-Executive Director, Missourians Organizing for Reform and Empowerment, Missouri, USA
+
+
 **Sigrid Langhaeuser**: Historian, Anglicist, translator, Germany
+
+
 **Renee Leavy**, PhD (biochemistry): Rebbetzin, New York, USA
+
+
 **Dianne Lee**: Professor, St. Louis Community College, Missouri, USA
+
+
 **Martin Lejeune**: Journalist; in Gaza during the 2014 assault and later gave testimony at the Special Session of the Russell Tribunal, Berlin, Germany
+
+
 **Dr. Michael Lüders**: Political scientist and scholar in Islamic studies, author, political and economic advisor, Germany
 
 
+
+
 **Miriam Margolyes**, OBE: Actress and voice artist, UK/Australia
-**Lubna Masarwa**: Political activist, Palestine 48, Jerusalem 
+
+
+**Lubna Masarwa**: Political activist, Palestine 48, Jerusalem
+
+
 **Mohammed Matter**: Journalist from Gaza, Berlin, Germany
+
+
 **Raymond L. McGovern**:  Founder, Veterans Intelligence Professionals for Security (VIPS), USA
+
+
 **Cynthia McKinney**, PhD: Politician and activist, Georgia, USA
-**Dr. Janice McLaughlin**: MM, Zimbabwe, former President of Maryknoll Sisters, (imprisoned by colonial regime in Rhodesia), New York, USA 
+
+
+**Dr. Janice McLaughlin**: MM, Zimbabwe, former President of Maryknoll Sisters, (imprisoned by colonial regime in Rhodesia), New York, USA
+
+
 **Joe Meadors**: USS Liberty Survivor, Freedom Flotillas I, II and III Participant, USA
+
+
 **Prof. Dr. Georg Meggle**: Universität Leipzig - Dir. Institut für Philosophie (emerit.), AUC, American University in Cairo, Germany
+
+
 **Elizabeth Murray**: former Deputy National Intelligence Officer for the Near East, National Intelligence Council (retired), USA
+
+
 **Carol Murry**, DrPH: University of Hawai'i Professor, passenger US Boat to Gaza, international health consultant, USA
 
 
+
+
 **Dorothy Naor**: Anti-occupation activist, Israel
+
+
 **Ofer Neiman**: Boycott from Within, Israel
+
+
 **Oded Netivi**: Painter and author, Heidelberg, Germany
+
+
 **Henry Norr**: Technology journalist and activist, USA
 
 
-**Jonathan Ofir**: Israeli musician, conductor and blogger/writer based in Denmark 
+
+
+**Jonathan Ofir**: Israeli musician, conductor and blogger/writer based in Denmark
+
+
 **Cindy Osborne**: North Carolina, USA
 
 
+
+
 **Prof. Dr. Norman Paech**: Hamburg, Germany
+
+
 **Maxine Peake**: Stage, radio, film and television actress, England
+
+
 **Nurit Peled-Elhanan**, PhD: Sakharov prize laureate for human rights 2001, Jerusalem
 
 
 **William T. Quick**: Attorney at law, member Missouri Board of Directors of National Lawyers Guild, Missouri, USA
+
+
 **Mazin Qumsiyeh**, Ph.D.:  Professor, Bethlehem University, Palestine
 
 
-**William Ramsey**: Human rights and peace activist, North Carolina, USA 
-**Prof. Dr. Fanny-Michaela Reisin**:  Former President of the International League for Human Rights; Board Member of the Jewish Voice for a Just Peace in Germany 
+**William Ramsey**: Human rights and peace activist, North Carolina, USA
+
+
+**Prof. Dr. Fanny-Michaela Reisin**:  Former President of the International League for Human Rights; Board Member of the Jewish Voice for a Just Peace in Germany
+
+
 **Lillian Rosengarten**: Writer and poet, activist to end the occupation, USA
+
+
 **Coleen Rowley**: retired FBI agent and former Division Legal Counsel, one of Time Magazine's 2002 Persons of the Year, USA
+
+
 **Kali Rubaii**: PhD Candidate in Anthropology, University of California, USA
 
 
-**Guenter Schenk**: grenzenloser Friedensaktivist / Peace activist beyond borders, Strasbourg 
+**Guenter Schenk**: grenzenloser Friedensaktivist / Peace activist beyond borders, Strasbourg
+
+
 **Herzl Schubert**: High school teacher, Ort Ebin, Ramat Gan
+
+
 **Dr. Tariq Shadid** (Doc Jazz): Surgeon and musician, Palestine
+
+
 **Uri Shani**: Israeli theater director, author and lecturer, Israel
+
+
 **Tali Shapiro**: Human rights activist and translator (Menschenrechtsaktivistin, Übersetzerin)
-**David Schermerhorn**: Retired film producer, has joined seven attempts to reach Gaza by ship and succeeded three times; he was captured by Israeli Naval Forces during the 2010 Flotilla, Washington, USA 
+
+
+**David Schermerhorn**: Retired film producer, has joined seven attempts to reach Gaza by ship and succeeded three times; he was captured by Israeli Naval Forces during the 2010 Flotilla, Washington, USA
+
+
 **Amir Schnitman**: Missouri, USA
+
+
 **Dr. Albrecht Schröter**: Mayor of Jena, Germany
-**Haim Schwarczenberg**: Photographer, Jaffa, Israel 
+
+
+**Haim Schwarczenberg**: Photographer, Jaffa, Israel
+
+
 **David Sheen**: Journalist; in Gaza during the 2014 assault and later gave testimony at the Special Session of the Russell Tribunal, Dimona, Israel
+
+
 **Yael Shomroni**: Missouri, USA
+
+
 **Clare Short**: British politician and former MP, UK
+
+
 **Rich Siege**l: Musician/activist, New Jersey, USA
+
+
 **Dr. Salman Abu Sitta**: Palestinian historian, UK
 
 
 **St. Louis Women in Black: Missouri, USA**
 
 
-**Lia Tarachansky**: Israeli-Russian journalist, Israel 
+**Lia Tarachansky**: Israeli-Russian journalist, Israel
+
+
 **Prof. Dr. Jack Thiessen**: New Bothwell, Manitoba, Canada
+
+
 **Mary Hughes Thompson**: Co-founder Free Gaza Movement, Writer/Freedom Sailor
 Canada
+
+
 **Baroness Dr Jenny Tonge**: Former MP House of Lords, Westminster, England
+
+
 **Phillip F. Tourney**: Liberty Survivor, USA
+
+
 
 **Prof. Dr. Rolf Verleger**: Psychologist, member of the Central Council of Jews in Germany 2005-09 (Psychologe, Mitglied im Zentralrat der Juden in Deutschland 2005-09)
 
 
 **Naomi Wallace**: Playwright/screenwriter, USA
-**Darlene Wallach**: Anti-zionist activist; social justice/human rights activist
+
+
+**Darlene Wallach**: Anti-zionist activist; social justice/human rights activist, USA
+
+
 **Donna Wallach**: Justice for Palestinians, San Jose, CA, USA
-**Alison Weir**: Alison Weir B.A. Founder and executive director of If Americans Knew, president of the Council for the National Interest, author, Against Our Better Judgment: The Hidden History of How the US Was Used to Create Israel, USA 
+
+
+**Alison Weir**: Alison Weir B.A. Founder and executive director of If Americans Knew, president of the Council for the National Interest, author, Against Our Better Judgment: The Hidden History of How the US Was Used to Create Israel, USA
+
+
 **Dr. Elian Weizman**: Israeli citizen
+
+
 **Dr. Charlotte Wiktorsson**: Gothenburg, Sweden
+
+
 **Colonel Ann Wright**: US Army Colonel (retired) and former US Diplomat who resigned in 2003 in opposition to the Iraq war
 
 
