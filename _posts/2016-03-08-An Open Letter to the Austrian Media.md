@@ -121,15 +121,35 @@ ________________
 **Klaus Kucharz**: Austria
 **Sabine Lafazani**: Data Analyst, Localization (IT), Vienna, Austria
 **Ilias Lafazanis**: Data Analyst (IT), Vienna, Austria
-
-
-
-
-
-
-
+**Wilhelm Langthaler**: Author and anti-globalization activist (Autor und Anti-Globalisierungsaktivist), Vienna, Austria
+**Dr. Kurt Leitner**: Vienna, Austria
+**Gunther Lorbeer**: Vienna, Austria
+**Gabriele Matzner**: Retired Austrian diplomat, Vienna, Austria
+**Rudolf Mayerhofer-Sebera**: Manager und Zivilgesellschafts-Netzwerker, Berndorf, Austria
+**Dr. Norbert Rozsenich**: Chairman of IFAC-Austria, Vienna, Austria
+**Waltraud Schauer**: Peace activist, served as a human shield in Iraq, Austria
+**Konrad Schön**: Styrian Peace Platform (Steirische Friedensplattform), Graz, Austria
+**Georg Schönfeld**: Architekt, Vienna, Austria
+**Gigi Segall**: Vienna, Austria
+**Dr. Peter Smutny**: Journalist, Biedermannsdorf, Austria
+**Franz Sölkner**: Chairperson Styrian Peace Platform (Obmann, Steierische Friedensplattform) Graz, Austria
+**Joan Unterweger**: Retired IT specialist, Vienna, Austria
+**Peter Unterweger**: Retired member of the Secretariat of the Int'l Metalworkers' Federation, Vienna, Austria
+**Brigitta Vavken**: Austria
+**Mariana Vazquez**: Vienna, Austria
+**Dr. Angela Waldegg**: Artist, Vienna, Austria 
+**Nina Werzhbinskaja-Rabinowich**: Artist, Vienna, Austria
+**Ing. Samuel Welber**: Critical Jewish Voice (Kritische Jüdische Stimme), Vienna, Austria
+**Helmut Wintersberger**: Social scientist, Vienna, Austria
+**Walter Wipp**: Former Head of Division of the Education Ministry (Ministerialrat i.R., ehem. Präsidialbeamter im Unterrichtsministerium), Austria
+**Em. Professor Ruth Wodak**, FAcSS: Distinguished Professor and Chair in Discourse Studies, Lancaster University/University Vienna
+**Heather Wokusch**: Founder of the 'In Grandmothers' Words' project, Austria
+**Rudolf O. Zucha**: Psychologist, publisher, Vienna, Austria
 
 ________________
+
+
+**Additional signers of this open letter from around the world; actors, activists, politicians, journalists, former members of Parliament and US Congress, USS Liberty survivors, psychoterapists/psycholgists, professors, writers and more **
 
 
 **Avigail Abarbanel**: Psychotherapist, Inverness, Scotland
@@ -226,24 +246,19 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Susan Larhrop**: President, Just Peace for Israel/Palestine, North Carolina, USA
 **Derek Laney**: Co-Executive Director, Missourians Organizing for Reform and Empowerment, Missouri, USA
 **Sigrid Langhaeuser**: Historian, Anglicist, translator, Germany
-**Wilhelm Langthaler**: Author and anti-globalization activist (Autor und Anti-Globalisierungsaktivist), Vienna, Austria
 **Renee Leavy**, PhD (biochemistry): Rebbetzin, New York, USA
 **Dianne Lee**: Professor, St. Louis Community College, Missouri, USA
 **Martin Lejeune**: Journalist; in Gaza during the 2014 assault and later gave testimony at the Special Session of the Russell Tribunal, Berlin, Germany
-**Dr. Kurt Leitner**: Vienna, Austria
-**Gunther Lorbeer**: Vienna, Austria
 **Dr. Michael Lüders**: Political scientist and scholar in Islamic studies, author, political and economic advisor, Germany
 
 
 **Miriam Margolyes**, OBE: Actress and voice artist, UK/Australia
 **Lubna Masarwa**: Political activist, Palestine 48, Jerusalem 
 **Mohammed Matter**: Journalist from Gaza, Berlin, Germany
-**Gabriele Matzner**: Retired Austrian diplomat, Vienna, Austria
-**Rudolf Mayerhofer-Sebera**: Manager und Zivilgesellschafts-Netzwerker, Berndorf, Austria
 **Raymond L. McGovern**:  Founder, Veterans Intelligence Professionals for Security (VIPS), USA
 **Cynthia McKinney**, PhD: Politician and activist, Georgia, USA
 **Dr. Janice McLaughlin**: MM, Zimbabwe, former President of Maryknoll Sisters, (imprisoned by colonial regime in Rhodesia), New York, USA 
-**Joe Meadors**: USS Liberty Survivor, Freedom Flotillas I, II and III Participant
+**Joe Meadors**: USS Liberty Survivor, Freedom Flotillas I, II and III Participant, USA
 **Prof. Dr. Georg Meggle**: Universität Leipzig - Dir. Institut für Philosophie (emerit.), AUC, American University in Cairo, Germany
 **Elizabeth Murray**: former Deputy National Intelligence Officer for the Near East, National Intelligence Council (retired), USA
 **Carol Murry**, DrPH: University of Hawai'i Professor, passenger US Boat to Gaza, international health consultant, USA
@@ -271,31 +286,24 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **William Ramsey**: Human rights and peace activist, North Carolina, USA 
 **Prof. Dr. Fanny-Michaela Reisin**:  Former President of the International League for Human Rights; Board Member of the Jewish Voice for a Just Peace in Germany 
 **Lillian Rosengarten**: Writer and poet, activist to end the occupation, USA
-**Coleen Rowley**: retired FBI agent and former Division Legal Counsel, one of Time Magazine's 2002 Persons of the Year
-**Dr. Norbert Rozsenich**: Chairman of IFAC-Austria, Vienna, Austria
+**Coleen Rowley**: retired FBI agent and former Division Legal Counsel, one of Time Magazine's 2002 Persons of the Year, USA
 **Kali Rubaii**: PhD Candidate in Anthropology, University of California, USA
 
 
-**Waltraud Schauer**: Peace activist, served as a human shield in Iraq, Austria
 **Guenter Schenk**: grenzenloser Friedensaktivist / Peace activist beyond borders, Strasbourg 
 **Herzl Schubert**: High school teacher, Ort Ebin, Ramat Gan
-**Dr. Tariq Shadid** (Doc Jazz): Surgeon and musician
+**Dr. Tariq Shadid** (Doc Jazz): Surgeon and musician, Palestine
 **Uri Shani**: Israeli theater director, author and lecturer, Israel
 **Tali Shapiro**: Human rights activist and translator (Menschenrechtsaktivistin, Übersetzerin)
 **David Schermerhorn**: Retired film producer, has joined seven attempts to reach Gaza by ship and succeeded three times; he was captured by Israeli Naval Forces during the 2010 Flotilla, Washington, USA 
 **Amir Schnitman**: Missouri, USA
-**Konrad Schön**: Styrian Peace Platform (Steirische Friedensplattform), Graz, Austria
-**Georg Schönfeld**: Architekt, Vienna, Austria
 **Dr. Albrecht Schröter**: Mayor of Jena, Germany
 **Haim Schwarczenberg**: Photographer, Jaffa, Israel 
-**Gigi Segall**: Vienna, Austria
 **David Sheen**: Journalist; in Gaza during the 2014 assault and later gave testimony at the Special Session of the Russell Tribunal, Dimona, Israel
 **Yael Shomroni**: Missouri, USA
 **Clare Short**: British politician and former MP, UK
 **Rich Siege**l: Musician/activist, New Jersey, USA
 **Dr. Salman Abu Sitta**: Palestinian historian, UK
-**Dr. Peter Smutny**: Journalist, Biedermannsdorf, Austria
-**Franz Sölkner**: Chairperson Styrian Peace Platform (Obmann, Steierische Friedensplattform) Graz, Austria
 
 
 **St. Louis Women in Black: Missouri, USA**
@@ -303,38 +311,24 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 
 **Lia Tarachansky**: Israeli-Russian journalist, Israel 
 **Prof. Dr. Jack Thiessen**: New Bothwell, Manitoba, Canada
-**Mary Hughes Thompson**: Co-founder Free Gaza Movement Writer/Freedom Sailor
+**Mary Hughes Thompson**: Co-founder Free Gaza Movement, Writer/Freedom Sailor
 Canada
 **Baroness Dr Jenny Tonge**: Former MP House of Lords, Westminster, England
 **Phillip F. Tourney**: Liberty Survivor, USA
 
-
-**Joan Unterweger**: Retired IT specialist, Vienna, Austria
-**Peter Unterweger**: Retired member of the Secretariat of the Int'l Metalworkers' Federation, Vienna, Austria
-
-
-**Brigitta Vavken**: Austria
-**Mariana Vazquez**: Vienna, Austria
 **Prof. Dr. Rolf Verleger**: Psychologist, member of the Central Council of Jews in Germany 2005-09 (Psychologe, Mitglied im Zentralrat der Juden in Deutschland 2005-09)
 
 
-**Dr. Angela Waldegg**: Artist, Vienna, Austria 
 **Naomi Wallace**: Playwright/screenwriter, USA
 **Darlene Wallach**: Anti-zionist activist; social justice/human rights activist
 **Donna Wallach**: Justice for Palestinians, San Jose, CA, USA
 **Alison Weir**: Alison Weir B.A. Founder and executive director of If Americans Knew, president of the Council for the National Interest, author, Against Our Better Judgment: The Hidden History of How the US Was Used to Create Israel, USA 
 **Dr. Elian Weizman**: Israeli citizen
-**Nina Werzhbinskaja-Rabinowich**: Artist, Vienna, Austria
-**Ing. Samuel Welber**: Critical Jewish Voice (Kritische Jüdische Stimme), Vienna, Austria
 **Dr. Charlotte Wiktorsson**: Gothenburg, Sweden
-**Helmut Wintersberger**: Social scientist, Vienna, Austria
-**Walter Wipp**: Former Head of Division of the Education Ministry (Ministerialrat i.R., ehem. Präsidialbeamter im Unterrichtsministerium), Austria
-**Em. Professor Ruth Wodak**, FAcSS: Distinguished Professor and Chair in Discourse Studies, Lancaster University/University Vienna
-**Heather Wokusch**: Founder of the 'In Grandmothers' Words' project, Austria
 **Colonel Ann Wright**: US Army Colonel (retired) and former US Diplomat who resigned in 2003 in opposition to the Iraq war
 
 
 **Ofra Yeshua-Lyth**: Journalist and writer, Israel
 
 
-**Rudolf O. Zucha**: Psychologist, publisher, Vienna, Austria
+
