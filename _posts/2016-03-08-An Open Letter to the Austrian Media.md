@@ -340,7 +340,7 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Rawan Allan Damen**: Senior Producer, Al Jazeera, Doha, Qatar
 
 
-**Lawrence Davidson**: Emeritus Professor of History, West Chester University, Penn., USA
+**Lawrence Davidson**: Emeritus Professor of History, West Chester U, Penn., USA
 
 
 **Raymond Deane**: Composer, author, Dublin, Ireland
