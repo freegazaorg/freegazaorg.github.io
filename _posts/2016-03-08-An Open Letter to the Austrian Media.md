@@ -414,7 +414,7 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 **Dr. Ilana Hammerman**: Writer, editor and translator, Jerusalem
 
 
-**Dr. Roni Hamermann**: Hebrew University, Jerusalem, co-founder of Machsomwatch, Israel
+**Dr. Roni Hamermann**: Hebrew Univ,Jerusalem, co-founder: Machsomwatch, Israel
 
 
 **Evelyn Hecht-Galinski**: Publicist, Germany
