@@ -474,7 +474,7 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 **Martha King**: Human rights activist, Missouri, USA
 
 
-**Christopher Ben Kushka**: Human rights activist, (BDS + ISM), Ungedanken, Germany
+**Christopher Ben Kushka**: Human rights activist, (BDS/ISM) Ungedanken, Germany
 
 
 
