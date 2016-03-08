@@ -96,25 +96,55 @@ __________________
 
 ________________
 
+**Members of Austrian civil society who have signed this open letter.**
+
+**Paula Abrams-Hourani**: Founder, Women in Black, Vienna, Austria
+**Teresa Arrietta**: Journalist, Kritzendorf, Austria
+**Dr. Wolfgang Bahr**: Journalist, translator, reader (Journalist, Übersetzer und Verlagslektor) Vienna, Austria
+**Dr. Georg Becker**: Vienna, Austria
+**Univ.Prof.Dr. med. Ernst Berger**: Specializing in psychiatry and neurology, Vienna, Austria
+**AnnaLisa Erdemgil Brandstätter**: Vienna, Austria
+**Dominique Doujenis**: Vienna, Austria
+**Evelyn Dürmayer**: Attorney (Juristin) Vienna, Austria
+**Fritz Edlinger**: Secretary General, Society for Austro-Arab Relations, Vienna, Austria
+**Dr. Edda Egerer**: Women in Black, Vienna, Austria
+**DI Erik Egerer**: Architect, Vienna, Austria
+**Irmgard Ehrenberger**: Vienna, Austria
+**Eva Fitz**: Co-founder ‘Kirchenfrauenkabarett, eh. Präsidentin KA,’ Vorarlberg, Austria 
+**Peter Fleissner**: Social scientist, coordinator of Transform! Austria
+**DI. Friedrich Gries**s: Former President of the European Federation, Vienna, Austria
+**Oliver Hashemizadeh**: BDS Austria, Vienna, Austria
+**Karl Helmreich**, OSB: Verein Netzwerk, Benediktiner des Stiftes Melk, Leobersdorf, Austria
+**Dr. Hannes Hofbauer**: Publisher and publicist (Verleger und Publizist) Vienna, Austria
+**Univ.-Prof. Dr. iur. Frank Höpfel**: University of Vienna, Institute for Criminal Law and Criminology (Univ.-Institut für Strafrecht und Kriminologie), Austria
+**Prof. Ali Kohlbacher**: Austrian anti-fascist, Board Member of ‘Österreichischen Nord-Süd-Instituts,’ Vienna, Austria
+**Klaus Kucharz**: Austria
+**Sabine Lafazani**: Data Analyst, Localization (IT), Vienna, Austria
+**Ilias Lafazanis**: Data Analyst (IT), Vienna, Austria
+
+
+
+
+
+
+
+
+________________
+
 
 **Avigail Abarbanel**: Psychotherapist, Inverness, Scotland
-**Paula Abrams-Hourani**: Founder, Women in Black, Vienna, Austria
 **Kaveh Ahangar**: Rapper, activist, journalist, Berlin, Germany
 **J'Ann Schoomaker Allen**: Missouri, USA
 **James D. Allen Jr**., PhD: Missouri, USA
-**Teresa Arrietta**: Journalist, Kritzendorf, Austria
 **Ofra Ben Artzi**: Israeli citizen
 
 
 **Alice Bach**: Professor of religious studies, anti-war activist, journalist, Cleveland, USA
-**Dr. Wolfgang Bahr**: Journalist, translator, reader (Journalist, Übersetzer und Verlagslektor) Vienna, Austria
 **Frank Barat**: Coordinator Russell Tribunal on Palestine, Belgium 
 **Ronnie Barkan**: Israeli dissident Boycott from Within, Israel
 **Ramzy Baroud**, Ph.D.: Author and journalist, Washington, USA
-**Dr. Georg Becker**: Vienna, Austria
 **Dr. Johannes M. Becker**: Associate Professor, Peace Research (Privatdozent, Friedensforscher) Universität Marburg, Germany
 **Medea Benjamin**: Author, Co-Founder of Code Pink, USA 
-Univ.Prof.Dr. med. Ernst Berger: Specializing in psychiatry and neurology, Vienna, Austria 
 **Greta K Berlin**, MFA: Co-founder, Free Gaza movement, author/editor, Freedom Sailors, France
 **Randy Bernard**: Writer/Editor, North Carolina, USA 
 **Judith Bernstein:** Jewish-Palestinian Dialogue Group Munich (jüdisch-palästinensische Dialoggruppe München), Germany
@@ -126,7 +156,6 @@ Univ.Prof.Dr. med. Ernst Berger: Specializing in psychiatry and neurology, Vienn
 **Audrey Bomse**: Attorney, Member, National Lawyers Guild and co-chair of Palestine subcommittee, USA
 **Lauren Booth**: Journalist, broadcaster and blogger, UK
 Dr. Mark J.  Boyd, PhD: North Carolina, USA
-**AnnaLisa Erdemgil Brandstätter**: Vienna, Austria
 **Dr. (theol.) Martin Breidert**, Germany
 **Diana Buttu**: Attorney
 
@@ -140,23 +169,14 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Rawan Allan Damen**: Senior Producer, Al Jazeera, Doha, Qatar
 **Lawrence Davidson**: Emeritus Professor of History, West Chester University, Penn., USA
 **Raymond Deane**: Composer, author, Dublin, Ireland
-**Dominique Doujenis**: Vienna, Austria
 **Gretta Duisenberg**: Founder and chair "Stop the Occupation," The Netherlands
-**Evelyn Dürmayer**: Attorney (Juristin) Vienna, Austria
 
 
-**Fritz Edlinger**: Secretary General, Society for Austro-Arab Relations, Vienna, Austria
-**Dr. Edda Egerer**: Women in Black, Vienna, Austria
-**DI Erik Egerer**: Architect, Vienna, Austria
-**Irmgard Ehrenberger**: Vienna, Austria
 **Debra Ellis**: MS Counseling and Human Systems, co-founder of The Islah Reparations Project, retired University of California, Santa Cruz, USA
 **Jim Ennes**: USS Liberty Survivor, author, "Assault on the Liberty," USA
 
 
 **Ayed Fadel**: Kabareet, Haifa
-**Eva Fitz**: Co-founder ‘Kirchenfrauenkabarett, eh. Präsidentin KA,’ Vorarlberg, Austria 
-**Peter Fleissner**: Social scientist, coordinator of Transform! Austria
-
 
 **Kathlyn Gadd**: Chartered Accountant, UK 
 **Dr. Richard Gadd**: Retired Head of Nuclear Medicine Imaging, RSUH, UK
@@ -167,7 +187,6 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Neta Golan**: Co-Founder of International Solidarity Movement (ISM) 
 **Tsilli Goldenberg**: Retired teacher, political activist, Jerusalem, Israel
 **Elleanne Green**: Activist and founder of PALESTINE LIVE, UK
-**DI. Friedrich Gries**s: Former President of the European Federation, Vienna, Austria
 **Gordon Griffin**: Actor and Casting Director of the English Theatre of Hamburg, Germany 
 **Prof.Dr. Alfred Grosser**: Peace prize winner of the German Booksellers (Friedenspreisträger des deutschen Buchhandels) Paris, France
 **Serge Grossvak**: Director of Social Center, member of l'UJRE (Directeur de Centre Social, membre de l'UJRE - Union des Juifs pour la Résistance et l'Entraide), Marseille, France
@@ -177,15 +196,11 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Jeff Halper**, Ph.D.: Anthropologist, author, lecturer, and political activist, Co-Founder and Director of the Israeli Committee Against House Demolitions (ICAHD)
 **Dr. Ilana Hammerman**: Writer, editor and translator, Jerusalem
 **Dr. Roni Hamermann**: Hebrew University, Jerusalem, co-founder of Machsomwatch, Israel
-**Oliver Hashemizadeh**: BDS Austria, Vienna, Austria
 **Evelyn Hecht-Galinski**: Publicist, Germany
 **Chris Hedges**: Pulitzer-prize winning journalist and former Middle East Bureau Chief for The New York Times, USA
-**Karl Helmreich**, OSB: Verein Netzwerk, Benediktiner des Stiftes Melk, Leobersdorf, Austria
 **Shir Hever**: Heidelberg, Germany 
-**Dr. Hannes Hofbauer**: Publisher and publicist (Verleger und Publizist) Vienna, Austria
 **Joyce Holliday**: Author, United Church of Christ Minister, North Carolina, USA
 **Tikva Honig-Parnass**, PhD: Jerusalem, Israel
-**Univ.-Prof. Dr. iur. Frank Höpfel**: University of Vienna, Institute for Criminal Law and Criminology (Univ.-Institut für Strafrecht und Kriminologie), Austria
 **Jocelyn Hurndall**: Mother of Tom Hurndall, International Solidarity Movement (ISM) volunteer who was shot in the head by an Israeli sniper
 **Patricia Hynes**, MS JD: North Carolina, USA
 
@@ -203,14 +218,11 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Dr. Elizabeth B. Keiser**: Charles A. Dana Professor Emerita, English Dept., Guilford College, North Carolina, USA
 **Dr. R. Melvin Keiser**: Professor Emeritus, Religious Studies Dept., Guilford College, North Carolina, USA
 **Ramsis Kilani**: Student, his father, five of his siblings and his father’s second wife (all German citizens) were killed in Gaza during "Operation Protective Edge," Universität Siegen, Germany
-**Martha King**: Human rights activist, Missouri, USA
-**Prof. Ali Kohlbacher**: Austrian anti-fascist, Board Member of ‘Österreichischen Nord-Süd-Instituts,’ Vienna, Austria
-**Klaus Kucharz**: Austria  
+**Martha King**: Human rights activist, Missouri, USA  
 **Christopher Ben Kushka**: Human rights activist, (BDS + ISM), Ungedanken, Germany
 
 
-**Sabine Lafazani**: Data Analyst, Localization (IT), Vienna, Austria
-**Ilias Lafazanis**: Data Analyst (IT), Vienna, Austria
+
 **Susan Larhrop**: President, Just Peace for Israel/Palestine, North Carolina, USA
 **Derek Laney**: Co-Executive Director, Missourians Organizing for Reform and Empowerment, Missouri, USA
 **Sigrid Langhaeuser**: Historian, Anglicist, translator, Germany
