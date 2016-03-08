@@ -3,6 +3,18 @@ published: true
 layout: post
 ---
 
+CONTACT: Heather Wokusch, Founder of 'In Grandmothers' Words', USA/Austria (English): <heather@heatherwokusch.com> 
+
+
+Fritz Edlinger, Secretary General, Society for Austro-Arab Relations, Austria: <office.vienna@saar.at> 
+
+
+Ing. Samuel Welber: Critical Jewish Voice (Kritische Jüdische Stimme), Austria: <welsaenergy@gmail.com> 
+
+
+Hedy Epstein (English/German): <hedy@hedyepstein.com> 
+
+
 
 
 > _'Everyone has the right to freedom of opinion and expression; this right includes freedom to hold opinions without interference and to seek, receive and impart information and ideas through any media and regardless of frontiers.'_ 
