@@ -249,30 +249,30 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Dr. Peter Smutny**: Journalist, Biedermannsdorf, Austria
 **Franz Sölkner**: Chairperson Styrian Peace Platform (Obmann, Steierische Friedensplattform) Graz, Austria
 **St. Louis Women in Black: Missouri, USA**
-Lia Tarachansky: Israeli-Russian journalist, Israel 
-Prof. Dr. Jack Thiessen: New Bothwell, Manitoba, Canada
-Mary Hughes Thompson: Co-founder Free Gaza Movement Writer/Freedom Sailor
+**Lia Tarachansky**: Israeli-Russian journalist, Israel 
+**Prof. Dr. Jack Thiessen**: New Bothwell, Manitoba, Canada
+**Mary Hughes Thompson**: Co-founder Free Gaza Movement Writer/Freedom Sailor
 Canada
-Baroness Dr Jenny Tonge: Former MP House of Lords, Westminster, England
-Phillip F. Tourney: Liberty Survivor, USA
-Joan Unterweger: Retired IT specialist, Vienna, Austria
-Peter Unterweger: Retired member of the Secretariat of the Int'l Metalworkers' Federation, Vienna, Austria
-Brigitta Vavken: Austria
-Mariana Vazquez: Vienna, Austria
-Prof. Dr. Rolf Verleger: Psychologist, member of the Central Council of Jews in Germany 2005-09 (Psychologe, Mitglied im Zentralrat der Juden in Deutschland 2005-09)
-Dr. Angela Waldegg: Artist, Vienna, Austria 
-Naomi Wallace: Playwright/screenwriter, USA
-Darlene Wallach: Anti-zionist activist; social justice/human rights activist
-Donna Wallach: Justice for Palestinians, San Jose, CA, USA
-Alison Weir: Alison Weir B.A. Founder and executive director of If Americans Knew, president of the Council for the National Interest, author, Against Our Better Judgment: The Hidden History of How the US Was Used to Create Israel, USA 
-Dr. Elian Weizman: Israeli citizen
-Nina Werzhbinskaja-Rabinowich: Artist, Vienna, Austria
-Ing. Samuel Welber: Critical Jewish Voice (Kritische Jüdische Stimme), Vienna, Austria
-Dr. Charlotte Wiktorsson: Gothenburg, Sweden
-Helmut Wintersberger: Social scientist, Vienna, Austria
-Walter Wipp: Former Head of Division of the Education Ministry (Ministerialrat i.R., ehem. Präsidialbeamter im Unterrichtsministerium), Austria
-Em. Professor Ruth Wodak, FAcSS: Distinguished Professor and Chair in Discourse Studies, Lancaster University/University Vienna
-Heather Wokusch: Founder of the 'In Grandmothers' Words' project, Austria
-Colonel Ann Wright: US Army Colonel (retired) and former US Diplomat who resigned in 2003 in opposition to the Iraq war
-Ofra Yeshua-Lyth: Journalist and writer, Israel
-Rudolf O. Zucha: Psychologist, publisher, Vienna, Austria
+**Baroness Dr Jenny Tonge**: Former MP House of Lords, Westminster, England
+**Phillip F. Tourney**: Liberty Survivor, USA
+**Joan Unterweger**: Retired IT specialist, Vienna, Austria
+**Peter Unterweger**: Retired member of the Secretariat of the Int'l Metalworkers' Federation, Vienna, Austria
+**Brigitta Vavken**: Austria
+**Mariana Vazquez**: Vienna, Austria
+**Prof. Dr. Rolf Verleger**: Psychologist, member of the Central Council of Jews in Germany 2005-09 (Psychologe, Mitglied im Zentralrat der Juden in Deutschland 2005-09)
+**Dr. Angela Waldegg**: Artist, Vienna, Austria 
+**Naomi Wallace**: Playwright/screenwriter, USA
+**Darlene Wallach**: Anti-zionist activist; social justice/human rights activist
+**Donna Wallach**: Justice for Palestinians, San Jose, CA, USA
+**Alison Weir**: Alison Weir B.A. Founder and executive director of If Americans Knew, president of the Council for the National Interest, author, Against Our Better Judgment: The Hidden History of How the US Was Used to Create Israel, USA 
+**Dr. Elian Weizman**: Israeli citizen
+**Nina Werzhbinskaja-Rabinowich**: Artist, Vienna, Austria
+**Ing. Samuel Welber**: Critical Jewish Voice (Kritische Jüdische Stimme), Vienna, Austria
+**Dr. Charlotte Wiktorsson**: Gothenburg, Sweden
+**Helmut Wintersberger**: Social scientist, Vienna, Austria
+**Walter Wipp**: Former Head of Division of the Education Ministry (Ministerialrat i.R., ehem. Präsidialbeamter im Unterrichtsministerium), Austria
+**Em. Professor Ruth Wodak**, FAcSS: Distinguished Professor and Chair in Discourse Studies, Lancaster University/University Vienna
+**Heather Wokusch**: Founder of the 'In Grandmothers' Words' project, Austria
+**Colonel Ann Wright**: US Army Colonel (retired) and former US Diplomat who resigned in 2003 in opposition to the Iraq war
+**Ofra Yeshua-Lyth**: Journalist and writer, Israel
+**Rudolf O. Zucha**: Psychologist, publisher, Vienna, Austria
