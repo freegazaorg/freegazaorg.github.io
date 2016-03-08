@@ -100,52 +100,146 @@ ________________
 **Members of Austrian civil society who have signed this open letter.**
 
 **Paula Abrams-Hourani**: Founder, Women in Black, Vienna, Austria
+
+
 **Teresa Arrietta**: Journalist, Kritzendorf, Austria
+
+
 **Dr. Wolfgang Bahr**: Journalist, translator, reader (Journalist, Übersetzer und Verlagslektor) Vienna, Austria
+
+
 **Dr. Georg Becker**: Vienna, Austria
+
+
 **Univ.Prof.Dr. med. Ernst Berger**: Specializing in psychiatry and neurology, Vienna, Austria
+
+
 **AnnaLisa Erdemgil Brandstätter**: Vienna, Austria
+
+
 **Dominique Doujenis**: Vienna, Austria
+
+
 **Evelyn Dürmayer**: Attorney (Juristin) Vienna, Austria
+
+
 **Fritz Edlinger**: Secretary General, Society for Austro-Arab Relations, Vienna, Austria
+
+
 **Dr. Edda Egerer**: Women in Black, Vienna, Austria
+
+
 **DI Erik Egerer**: Architect, Vienna, Austria
+
+
 **Irmgard Ehrenberger**: Vienna, Austria
-**Eva Fitz**: Co-founder ‘Kirchenfrauenkabarett, eh. Präsidentin KA,’ Vorarlberg, Austria 
+
+
+**Eva Fitz**: Co-founder ‘Kirchenfrauenkabarett, eh. Präsidentin KA,’ Vorarlberg, Austria
+
+
 **Peter Fleissner**: Social scientist, coordinator of Transform! Austria
+
+
 **DI. Friedrich Gries**s: Former President of the European Federation, Vienna, Austria
+
+
 **Oliver Hashemizadeh**: BDS Austria, Vienna, Austria
+
+
 **Karl Helmreich**, OSB: Verein Netzwerk, Benediktiner des Stiftes Melk, Leobersdorf, Austria
+
+
 **Dr. Hannes Hofbauer**: Publisher and publicist (Verleger und Publizist) Vienna, Austria
+
+
 **Univ.-Prof. Dr. iur. Frank Höpfel**: University of Vienna, Institute for Criminal Law and Criminology (Univ.-Institut für Strafrecht und Kriminologie), Austria
+
+
 **Prof. Ali Kohlbacher**: Austrian anti-fascist, Board Member of ‘Österreichischen Nord-Süd-Instituts,’ Vienna, Austria
+
+
 **Klaus Kucharz**: Austria
+
+
 **Sabine Lafazani**: Data Analyst, Localization (IT), Vienna, Austria
+
+
 **Ilias Lafazanis**: Data Analyst (IT), Vienna, Austria
+
+
 **Wilhelm Langthaler**: Author and anti-globalization activist (Autor und Anti-Globalisierungsaktivist), Vienna, Austria
+
+
 **Dr. Kurt Leitner**: Vienna, Austria
+
+
 **Gunther Lorbeer**: Vienna, Austria
+
+
 **Gabriele Matzner**: Retired Austrian diplomat, Vienna, Austria
+
+
 **Rudolf Mayerhofer-Sebera**: Manager und Zivilgesellschafts-Netzwerker, Berndorf, Austria
+
+
 **Dr. Norbert Rozsenich**: Chairman of IFAC-Austria, Vienna, Austria
+
+
 **Waltraud Schauer**: Peace activist, served as a human shield in Iraq, Austria
+
+
 **Konrad Schön**: Styrian Peace Platform (Steirische Friedensplattform), Graz, Austria
+
+
 **Georg Schönfeld**: Architekt, Vienna, Austria
+
+
 **Gigi Segall**: Vienna, Austria
+
+
 **Dr. Peter Smutny**: Journalist, Biedermannsdorf, Austria
+
+
 **Franz Sölkner**: Chairperson Styrian Peace Platform (Obmann, Steierische Friedensplattform) Graz, Austria
+
+
 **Joan Unterweger**: Retired IT specialist, Vienna, Austria
+
+
 **Peter Unterweger**: Retired member of the Secretariat of the Int'l Metalworkers' Federation, Vienna, Austria
+
+
 **Brigitta Vavken**: Austria
+
+
 **Mariana Vazquez**: Vienna, Austria
-**Dr. Angela Waldegg**: Artist, Vienna, Austria 
+
+
+**Dr. Angela Waldegg**: Artist, Vienna, Austria
+
+
 **Nina Werzhbinskaja-Rabinowich**: Artist, Vienna, Austria
+
+
 **Ing. Samuel Welber**: Critical Jewish Voice (Kritische Jüdische Stimme), Vienna, Austria
+
+
 **Helmut Wintersberger**: Social scientist, Vienna, Austria
+
+
 **Walter Wipp**: Former Head of Division of the Education Ministry (Ministerialrat i.R., ehem. Präsidialbeamter im Unterrichtsministerium), Austria
-**Em. Professor Ruth Wodak**, FAcSS: Distinguished Professor and Chair in Discourse Studies, Lancaster University/University Vienna
+
+
+**Em. Professor Ruth Wodak**, FAcSS: Distinguished Professor and Chair in Discourse Studies, Lancaster University/University Vienna, Austria
+
+
 **Heather Wokusch**: Founder of the 'In Grandmothers' Words' project, Austria
+
+
 **Rudolf O. Zucha**: Psychologist, publisher, Vienna, Austria
+
+
 
 ________________
 
