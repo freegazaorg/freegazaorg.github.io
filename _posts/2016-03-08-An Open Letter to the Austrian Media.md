@@ -246,70 +246,180 @@ ________________
 
 **Additional signers of this open letter from around the world; actors, activists, politicians, journalists, former members of Parliament and US Congress, USS Liberty survivors, psychoterapists/psycholgists, professors, writers and more**
 
+________________
+
 **Avigail Abarbanel**: Psychotherapist, Inverness, Scotland
+
+
 **Kaveh Ahangar**: Rapper, activist, journalist, Berlin, Germany
+
+
 **J'Ann Schoomaker Allen**: Missouri, USA
+
+
 **James D. Allen Jr**., PhD: Missouri, USA
+
+
 **Ofra Ben Artzi**: Israeli citizen
 
+
+
 **Alice Bach**: Professor of religious studies, anti-war activist, journalist, Cleveland, USA
-**Frank Barat**: Coordinator Russell Tribunal on Palestine, Belgium 
+
+
+**Frank Barat**: Coordinator Russell Tribunal on Palestine, Belgium
+
+
 **Ronnie Barkan**: Israeli dissident Boycott from Within, Israel
+
+
 **Ramzy Baroud**, Ph.D.: Author and journalist, Washington, USA
+
+
 **Dr. Johannes M. Becker**: Associate Professor, Peace Research (Privatdozent, Friedensforscher) Universität Marburg, Germany
-**Medea Benjamin**: Author, Co-Founder of Code Pink, USA 
+
+
+**Medea Benjamin**: Author, Co-Founder of Code Pink, USA
+
+
 **Greta K Berlin**, MFA: Co-founder, Free Gaza movement, author/editor, Freedom Sailors, France
-**Randy Bernard**: Writer/Editor, North Carolina, USA 
+
+
+**Randy Bernard**: Writer/Editor, North Carolina, USA
+
+
 **Judith Bernstein:** Jewish-Palestinian Dialogue Group Munich (jüdisch-palästinensische Dialoggruppe München), Germany
+
+
 **Stephen Bingham**: Attorney, past President, San Francisco Bay Area Chapter, National Lawyers Guild, USA
-**Jeffrey Blankfort**: Radio journalist, former Editor, Middle East Labor Bulletin
+
+
+**Jeffrey Blankfort**: Radio journalist, former Editor, Middle East Labor Bulletin, USA
+
+
 **Walter P. Blass**, B.A. Honors, M.A.: Dual Austrian/American nationality, North Carolina, USA
+
+
 **Harald Moritz Bock**: Secretary General of the German-Arab Society D-A-G (Generalsekretär DEUTSCH-ARABISCHE GESELLSCHAFT), Berlin, Germany
+
+
 **Barbara Bogard**, BA, BS, MA: Co-Founder and Chair of Pesticide Free Marin, Women's International League for Peace & Freedom, USA
+
+
 **Audrey Bomse**: Attorney, Member, National Lawyers Guild and co-chair of Palestine subcommittee, USA
+
+
 **Lauren Booth**: Journalist, broadcaster and blogger, UK
+
+
 Dr. Mark J.  Boyd, PhD: North Carolina, USA
+
+
 **Dr. (theol.) Martin Breidert**, Germany
+
+
 **Diana Buttu**: Attorney
 
 
+
+
 **Mark Chmiel**: Professor of Humanities, Maryville University, Missouri, USA; author of "Eli Wiesel & the Politics of Moral Leadership"
+
+
 **Kia Corthron**: Novelist/playwright, USA
+
+
 **Anne Herzon Craig**, M.Ed.: North Carolina, USA
 
 
+
+
 **KZ Gemeinschaft Dachau** (Concentration Camp Community, Dachau), Germany
+
+
 **Rawan Allan Damen**: Senior Producer, Al Jazeera, Doha, Qatar
+
+
 **Lawrence Davidson**: Emeritus Professor of History, West Chester University, Penn., USA
+
+
 **Raymond Deane**: Composer, author, Dublin, Ireland
+
+
 **Gretta Duisenberg**: Founder and chair "Stop the Occupation," The Netherlands
 
 
-**Debra Ellis**: MS Counseling and Human Systems, co-founder of The Islah Reparations Project, retired University of California, Santa Cruz, USA
+
+
+**Debra Ellis**: MS Counseling and Human Systems, co-founder of The Islah
+
+Reparations Project, retired University of California, Santa Cruz, USA
+
+
 **Jim Ennes**: USS Liberty Survivor, author, "Assault on the Liberty," USA
+
+
 
 
 **Ayed Fadel**: Kabareet, Haifa
 
-**Kathlyn Gadd**: Chartered Accountant, UK 
+
+
+**Kathlyn Gadd**: Chartered Accountant, UK
+
+
 **Dr. Richard Gadd**: Retired Head of Nuclear Medicine Imaging, RSUH, UK
+
+
 **Ophira Gamliel**, PhD: Research scholar at Ruhr University Bochum, Germany
-**Philip Giraldi**: Executive Director, Council for the National Interest, USA 
-**Tali Feld Gleiser**: Dominican Republic 
-**Rita Giacaman**: Professor of Public Health and Research and Program Development Coordinator, BIrzeit University, Occupied Palestine
-**Neta Golan**: Co-Founder of International Solidarity Movement (ISM) 
+
+
+**Philip Giraldi**: Executive Director, Council for the National Interest, USA
+
+
+**Tali Feld Gleiser**: Dominican Republic
+
+
+**Rita Giacaman**: Professor of Public Health and Research and Program
+
+Development Coordinator, BIrzeit University, Occupied Palestine
+
+
+**Neta Golan**: Co-Founder of International Solidarity Movement (ISM)
+
+
 **Tsilli Goldenberg**: Retired teacher, political activist, Jerusalem, Israel
+
+
 **Elleanne Green**: Activist and founder of PALESTINE LIVE, UK
-**Gordon Griffin**: Actor and Casting Director of the English Theatre of Hamburg, Germany 
+
+
+**Gordon Griffin**: Actor and Casting Director of the English Theatre of Hamburg, Germany
+
+
 **Prof.Dr. Alfred Grosser**: Peace prize winner of the German Booksellers (Friedenspreisträger des deutschen Buchhandels) Paris, France
+
+
 **Serge Grossvak**: Director of Social Center, member of l'UJRE (Directeur de Centre Social, membre de l'UJRE - Union des Juifs pour la Résistance et l'Entraide), Marseille, France
+
+
 **Diane Guildoni**: Free Speech Supporter, Missouri, USA
 
 
+
+
 **Jeff Halper**, Ph.D.: Anthropologist, author, lecturer, and political activist, Co-Founder and Director of the Israeli Committee Against House Demolitions (ICAHD)
+
+
 **Dr. Ilana Hammerman**: Writer, editor and translator, Jerusalem
+
+
 **Dr. Roni Hamermann**: Hebrew University, Jerusalem, co-founder of Machsomwatch, Israel
+
+
 **Evelyn Hecht-Galinski**: Publicist, Germany
+
+
 **Chris Hedges**: Pulitzer-prize winning journalist and former Middle East Bureau Chief for The New York Times, USA
 **Shir Hever**: Heidelberg, Germany 
 **Joyce Holliday**: Author, United Church of Christ Minister, North Carolina, USA
