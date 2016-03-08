@@ -638,7 +638,7 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 **Prof. Dr. Jack Thiessen**: New Bothwell, Manitoba, Canada
 
 
-**Mary Hughes Thompson**: Co-founder Free Gaza Movement, Writer/Freedom Sailor
+**Mary Hughes Thompson**: Co-founder Free Gaza Movement,Writer/Freedom Sailor
 Canada
 
 
