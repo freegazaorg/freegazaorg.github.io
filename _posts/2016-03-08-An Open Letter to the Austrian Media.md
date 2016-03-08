@@ -84,7 +84,7 @@ Journalists everywhere face pressure from powerful interest groups seeking to si
 
 
 
-## The list of supporters below is not exhaustive, but rather indicative of the strong support this open letter receives worldwide:**
+## The list of supporters below is not exhaustive, but rather indicative of the strong support this open letter receives worldwide:
 
 
 * **Avram Noam Chomsky**, Ph.D.: Linguist, philosopher, historian, logician, social critic, and political activist. Institute Professor Emeritus at the Massachusetts Institute of Technology. One of the founders of the field of cognitive science. The author of over 100 books, USA
@@ -148,7 +148,7 @@ Journalists everywhere face pressure from powerful interest groups seeking to si
 * **Heather Wokusch**: Founder of the 'In Grandmothers' Words' project, Austria
 * **Rudolf O. Zucha**: Psychologist, publisher, Vienna, Austria
 
-## Additional signers of this open letter from around the world; actors, activists, politicians, journalists, former members of Parliament and US Congress, USS Liberty survivors, psychoterapists/psycholgists, professors, writers and more**
+## Additional signers of this open letter from around the world; actors, activists, politicians, journalists, former members of Parliament and US Congress, USS Liberty survivors, psychoterapists/psycholgists, professors, writers and more
 
 * **Avigail Abarbanel**: Psychotherapist, Inverness, Scotland
 * **Kaveh Ahangar**: Rapper, activist, journalist, Berlin, Germany
