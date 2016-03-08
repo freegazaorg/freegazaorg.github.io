@@ -17,6 +17,10 @@ We request that the Austrian media take responsibility to report with accuracy a
 
 **Background on In Grandmothers' Words Event**
 
+__________________
+
+
+
 Today, March 8th 2016 (International Women's Day), the Austrian Parliament was scheduled to hold an event called In Grandmothers' Words. This event would have joined eight female WWII witnesses from around the world in Vienna in an unprecedented opportunity for the public to hear their experiences regarding specific topics, such as the atomic bombing of Hiroshima, the Uprising in Warsaw, and the Blitz in London.
 
 Two women of Austrian descent were among those scheduled to speak, including a Holocaust witness originally from Vienna and a woman of Slovene heritage who had endured multiple labor camps. Unfortunately, the Viennese Holocaust witness had to withdraw due to health reasons.
@@ -29,11 +33,15 @@ Faced with heightened domestic public opposition and concerned about safety issu
 
 **Austrian Media's Reporting of the Cancellation**
 
+__________________
+
 Of those Austrian media reporting the cancellation, there was unanimous condemnation of Ms. Epstein. In just two examples, the tabloid Heute headlined: 'Parliament Cancels Event with Israel Hater.' The newspaper Der Standard mainly quoted another publication's attacks on Ms. Epstein's credibility. 
 Interestingly, no Austrian media reported having contacted Ms. Epstein to ask if the allegations against her were true. No media mentioned that Ms. Epstein was scheduled to discuss only the Nuremberg Trials at the Parliament event.
 And no media questioned whether Ms. Epstein really is an 'Israel hater.'
 
 **Democratic Principles**
+
+__________________
 
 
 Undoubtedly, Ms. Epstein has a compelling background. Born in Germany to a Jewish family, she was part of the Kindertransport in 1939. Subsequently, most of her family members were killed in concentration camps. After working on the Doctors' Trial at Nuremberg, she moved to the US and has been involved in various forms of activism ever since, most recently, at the age of 90, being arrested in protests surrounding the police shooting of an unarmed African-American youth in Ferguson, Missouri.
@@ -50,6 +58,8 @@ Another Nobel Peace Prize laureate, Mairead Maguire, has said: 'I hope we can ag
 
 **Historical Precedent**
 
+__________________
+
 
 This is not the first time that a prominent supporter of Palestinian rights has been silenced in Austria. There have been multiple cases, such as in 2001, when the cultural critic and public intellectual Edward Said was disinvited to speak at the Freud Society. The Society's president explained that the cancellation arose from the desire to avoid 'an internal clash.'
 
@@ -62,6 +72,8 @@ The issue was not whether people agreed with Mr. Said's opinion, but that they d
 
 **Journalistic Responsibility**
 
+__________________
+
 That Austria has a difficult history regarding WWII is clear. Sensitivity to issues connected to the Holocaust and the persecution of Jewish and other populations is well-founded. The acknowledgement and prevention of anti-Semitism everywhere is absolutely imperative.
 
 But does that equate to censuring a Holocaust witness who lost her family to concentration camps and was going to speak about her experience working on the Nuremberg Trials?
@@ -71,7 +83,11 @@ The democratic process depends on informed citizens taking an interest in the ac
 Journalists everywhere face pressure from powerful interest groups seeking to silence certain perspectives on different topics. Yet the journalistic tenets of objectivity and impartiality necessitate reporting fairly on those whose opinions may be controversial.
 
 __________________
+
+
 **The list of supporters below is not exhaustive, but rather indicative of the strong support this open letter receives worldwide:**
+
+__________________
 
 **Avram Noam Chomsky**, Ph.D.: Linguist, philosopher, historian, logician, social critic, and political activist. Institute Professor Emeritus at the Massachusetts Institute of Technology. One of the founders of the field of cognitive science. The author of over 100 books, USA
 
@@ -98,6 +114,8 @@ __________________
 ________________
 
 **Members of Austrian civil society who have signed this open letter.**
+
+__________________
 
 **Paula Abrams-Hourani**: Founder, Women in Black, Vienna, Austria
 
