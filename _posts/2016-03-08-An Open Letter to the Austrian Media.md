@@ -127,128 +127,128 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **AnnaLisa Erdemgil Brandstätter**: Vienna, Austria
 **Dr. (theol.) Martin Breidert**, Germany
 **Diana Buttu**: Attorney 
-Mark Chmiel: Professor of Humanities, Maryville University, Missouri, USA; author of "Eli Wiesel & the Politics of Moral Leadership"
-Kia Corthron: Novelist/playwright, USA
-Anne Herzon Craig, M.Ed.: North Carolina, USA
-KZ Gemeinschaft Dachau (Concentration Camp Community, Dachau), Germany
-Rawan Allan Damen: Senior Producer, Al Jazeera, Doha, Qatar
-Lawrence Davidson: Emeritus Professor of History, West Chester University, Penn., USA
-Raymond Deane: Composer, author, Dublin, Ireland
-Dominique Doujenis: Vienna, Austria
-Gretta Duisenberg: Founder and chair "Stop the Occupation," The Netherlands
-Evelyn Dürmayer: Attorney (Juristin) Vienna, Austria
-Fritz Edlinger: Secretary General, Society for Austro-Arab Relations, Vienna, Austria
-Dr. Edda Egerer: Women in Black, Vienna, Austria
-DI Erik Egerer: Architect, Vienna, Austria
-Irmgard Ehrenberger: Vienna, Austria
-Debra Ellis: MS Counseling and Human Systems, co-founder of The Islah Reparations Project, retired University of California, Santa Cruz, USA
-Jim Ennes: USS Liberty Survivor, author, "Assault on the Liberty," USA
-Ayed Fadel: Kabareet, Haifa
-Eva Fitz: Co-founder ‘Kirchenfrauenkabarett, eh. Präsidentin KA,’ Vorarlberg, Austria 
-Peter Fleissner: Social scientist, coordinator of Transform! Austria
-Kathlyn Gadd: Chartered Accountant, UK 
-Dr. Richard Gadd: Retired Head of Nuclear Medicine Imaging, RSUH, UK
-Ophira Gamliel, PhD: Research scholar at Ruhr University Bochum, Germany
-Philip Giraldi: Executive Director, Council for the National Interest, USA 
-Tali Feld Gleiser: Dominican Republic 
-Rita Giacaman: Professor of Public Health and Research and Program Development Coordinator, BIrzeit University, Occupied Palestine
-Neta Golan: Co-Founder of International Solidarity Movement (ISM) 
-Tsilli Goldenberg: Retired teacher, political activist, Jerusalem, Israel
-Elleanne Green: Activist and founder of PALESTINE LIVE, UK
-DI. Friedrich Griess: Former President of the European Federation, Vienna, Austria
-Gordon Griffin: Actor and Casting Director of the English Theatre of Hamburg, Germany 
-Prof.Dr. Alfred Grosser: Peace prize winner of the German Booksellers (Friedenspreisträger des deutschen Buchhandels) Paris, France
-Serge Grossvak: Director of Social Center, member of l'UJRE (Directeur de Centre Social, membre de l'UJRE - Union des Juifs pour la Résistance et l'Entraide), Marseille, France
-Diane Guildoni: Free Speech Supporter, Missouri, USA
-Jeff Halper, Ph.D.: Anthropologist, author, lecturer, and political activist, Co-Founder and Director of the Israeli Committee Against House Demolitions (ICAHD)
-Dr. Ilana Hammerman: Writer, editor and translator, Jerusalem
-Dr. Roni Hamermann: Hebrew University, Jerusalem, co-founder of Machsomwatch, Israel
-Oliver Hashemizadeh: BDS Austria, Vienna, Austria
-Evelyn Hecht-Galinski: Publicist, Germany
-Chris Hedges: Pulitzer-prize winning journalist and former Middle East Bureau Chief for The New York Times, USA
-Karl Helmreich, OSB: Verein Netzwerk, Benediktiner des Stiftes Melk, Leobersdorf, Austria
-Shir Hever: Heidelberg, Germany 
-Dr. Hannes Hofbauer: Publisher and publicist (Verleger und Publizist) Vienna, Austria
-Joyce Holliday: Author, United Church of Christ Minister, North Carolina, USA
-Tikva Honig-Parnass, PhD: Jerusalem, Israel
-Univ.-Prof. Dr. iur. Frank Höpfel: University of Vienna, Institute for Criminal Law and Criminology (Univ.-Institut für Strafrecht und Kriminologie), Austria
-Jocelyn Hurndall: Mother of Tom Hurndall, International Solidarity Movement (ISM) volunteer who was shot in the head by an Israeli sniper
-Patricia Hynes, MS JD: North Carolina, USA
-Israeli Committee Against House Demolitions (ICAHD)
-Priv.-Doz. Anne Maximiliane Jäger-Gogoll: Philipps-Universität Marburg, Germany
-Dahr Jamail: Journalist, author, recipient of the 2008 Martha Gellhorn Prize for Journalism, USA
-Jane Jewell, L.R.A.M. B.A. (mus) Hons, USA 
-Dr. Ghada Karmi: Palestinian academic and Research Fellow, Institute of Arabic and Islamic Studies, University of Exeter, UK
-Rev. Dr. R. David Kaylor: Professor of Religion, Emeritus, Davidson College, North Carolina, USA
-Dr. Elizabeth B. Keiser: Charles A. Dana Professor Emerita, English Dept., Guilford College, North Carolina, USA
-Dr. R. Melvin Keiser: Professor Emeritus, Religious Studies Dept., Guilford College, North Carolina, USA
-Ramsis Kilani: Student, his father, five of his siblings and his father’s second wife (all German citizens) were killed in Gaza during "Operation Protective Edge," Universität Siegen, Germany
-Martha King: Human rights activist, Missouri, USA
-Prof. Ali Kohlbacher: Austrian anti-fascist, Board Member of ‘Österreichischen Nord-Süd-Instituts,’ Vienna, Austria
-Klaus Kucharz: Austria  
-Christopher Ben Kushka: Human rights activist, (BDS + ISM), Ungedanken, Germany  
-Sabine Lafazani: Data Analyst, Localization (IT), Vienna, Austria
-Ilias Lafazanis: Data Analyst (IT), Vienna, Austria
-Susan Larhrop: President, Just Peace for Israel/Palestine, North Carolina, USA
-Derek Laney: Co-Executive Director, Missourians Organizing for Reform and Empowerment, Missouri, USA
-Sigrid Langhaeuser: Historian, Anglicist, translator, Germany
-Wilhelm Langthaler: Author and anti-globalization activist (Autor und Anti-Globalisierungsaktivist), Vienna, Austria
-Renee Leavy, PhD (biochemistry): Rebbetzin, New York, USA
-Dianne Lee: Professor, St. Louis Community College, Missouri, USA
-Martin Lejeune: Journalist; in Gaza during the 2014 assault and later gave testimony at the Special Session of the Russell Tribunal, Berlin, Germany
-Dr. Kurt Leitner: Vienna, Austria
-Gunther Lorbeer: Vienna, Austria
-Dr. Michael Lüders: Political scientist and scholar in Islamic studies, author, political and economic advisor, Germany
-Miriam Margolyes, OBE: Actress and voice artist, UK/Australia
-Lubna Masarwa: Political activist, Palestine 48, Jerusalem 
-Mohammed Matter: Journalist from Gaza, Berlin, Germany
-Gabriele Matzner: Retired Austrian diplomat, Vienna, Austria
-Rudolf Mayerhofer-Sebera: Manager und Zivilgesellschafts-Netzwerker, Berndorf, Austria
-Raymond L. McGovern:  Founder, Veterans Intelligence Professionals for Security (VIPS), USA
-Cynthia McKinney, PhD: Politician and activist, Georgia, USA
-Dr. Janice McLaughlin: MM, Zimbabwe, former President of Maryknoll Sisters, (imprisoned by colonial regime in Rhodesia), New York, USA 
-Joe Meadors: USS Liberty Survivor, Freedom Flotillas I, II and III Participant
-Prof. Dr. Georg Meggle: Universität Leipzig - Dir. Institut für Philosophie (emerit.), AUC, American University in Cairo, Germany
-Elizabeth Murray: former Deputy National Intelligence Officer for the Near East, National Intelligence Council (retired), USA
-Carol Murry, DrPH: University of Hawai'i Professor, passenger US Boat to Gaza, international health consultant, USA
-Dorothy Naor: Anti-occupation activist, Israel
-Ofer Neiman: Boycott from Within, Israel
-Oded Netivi: Painter and author, Heidelberg, Germany
-Henry Norr: Technology journalist and activist, USA
-Jonathan Ofir: Israeli musician, conductor and blogger/writer based in Denmark 
-Cindy Osborne: North Carolina, USA
-Prof. Dr. Norman Paech: Hamburg, Germany
-Maxine Peake: Stage, radio, film and television actress, England
-Nurit Peled-Elhanan, PhD: Sakharov prize laureate for human rights 2001, Jerusalem
-William T. Quick: Attorney at law, member Missouri Board of Directors of National Lawyers Guild, Missouri, USA
-Mazin Qumsiyeh, Ph.D.:  Professor, Bethlehem University, Palestine
-William Ramsey: Human rights and peace activist, North Carolina, USA 
-Prof. Dr. Fanny-Michaela Reisin:  Former President of the International League for Human Rights; Board Member of the Jewish Voice for a Just Peace in Germany 
-Lillian Rosengarten: Writer and poet, activist to end the occupation, USA
-Coleen Rowley: retired FBI agent and former Division Legal Counsel, one of Time Magazine's 2002 Persons of the Year
-Dr. Norbert Rozsenich: Chairman of IFAC-Austria, Vienna, Austria
-Kali Rubaii: PhD Candidate in Anthropology, University of California, USA 
-Waltraud Schauer: Peace activist, served as a human shield in Iraq, Austria
-Guenter Schenk: grenzenloser Friedensaktivist / Peace activist beyond borders, Strasbourg 
-Herzl Schubert: High school teacher, Ort Ebin, Ramat Gan
-Dr. Tariq Shadid (Doc Jazz): Surgeon and musician
-Uri Shani: Israeli theater director, author and lecturer, Israel
-Tali Shapiro: Human rights activist and translator (Menschenrechtsaktivistin, Übersetzerin)
-David Schermerhorn: Retired film producer, has joined seven attempts to reach Gaza by ship and succeeded three times; he was captured by Israeli Naval Forces during the 2010 Flotilla, Washington, USA 
-Amir Schnitman: Missouri, USA
-Konrad Schön: Styrian Peace Platform (Steirische Friedensplattform), Graz, Austria
-Georg Schönfeld: Architekt, Vienna, Austria
-Dr. Albrecht Schröter: Mayor of Jena, Germany
-Haim Schwarczenberg: Photographer, Jaffa, Israel 
-Gigi Segall: Vienna, Austria
-David Sheen: Journalist; in Gaza during the 2014 assault and later gave testimony at the Special Session of the Russell Tribunal, Dimona, Israel
-Yael Shomroni: Missouri, USA
-Clare Short: British politician and former MP, UK
-Rich Siegel: Musician/activist, New Jersey, USA
-Dr. Salman Abu Sitta: Palestinian historian, UK
-Dr. Peter Smutny: Journalist, Biedermannsdorf, Austria
-Franz Sölkner: Chairperson Styrian Peace Platform (Obmann, Steierische Friedensplattform) Graz, Austria
-St. Louis Women in Black: Missouri, USA
+**Mark Chmiel**: Professor of Humanities, Maryville University, Missouri, USA; author of "Eli Wiesel & the Politics of Moral Leadership"
+**Kia Corthron**: Novelist/playwright, USA
+**Anne Herzon Craig**, M.Ed.: North Carolina, USA
+**KZ Gemeinschaft Dachau** (Concentration Camp Community, Dachau), Germany
+**Rawan Allan Damen**: Senior Producer, Al Jazeera, Doha, Qatar
+**Lawrence Davidson**: Emeritus Professor of History, West Chester University, Penn., USA
+**Raymond Deane**: Composer, author, Dublin, Ireland
+**Dominique Doujenis**: Vienna, Austria
+**Gretta Duisenberg**: Founder and chair "Stop the Occupation," The Netherlands
+**Evelyn Dürmayer**: Attorney (Juristin) Vienna, Austria
+**Fritz Edlinger**: Secretary General, Society for Austro-Arab Relations, Vienna, Austria
+**Dr. Edda Egerer**: Women in Black, Vienna, Austria
+**DI Erik Egerer**: Architect, Vienna, Austria
+**Irmgard Ehrenberger**: Vienna, Austria
+**Debra Ellis**: MS Counseling and Human Systems, co-founder of The Islah Reparations Project, retired University of California, Santa Cruz, USA
+**Jim Ennes**: USS Liberty Survivor, author, "Assault on the Liberty," USA
+**Ayed Fadel**: Kabareet, Haifa
+**Eva Fitz**: Co-founder ‘Kirchenfrauenkabarett, eh. Präsidentin KA,’ Vorarlberg, Austria 
+**Peter Fleissner**: Social scientist, coordinator of Transform! Austria
+**Kathlyn Gadd**: Chartered Accountant, UK 
+**Dr. Richard Gadd**: Retired Head of Nuclear Medicine Imaging, RSUH, UK
+**Ophira Gamliel**, PhD: Research scholar at Ruhr University Bochum, Germany
+**Philip Giraldi**: Executive Director, Council for the National Interest, USA 
+**Tali Feld Gleiser**: Dominican Republic 
+**Rita Giacaman**: Professor of Public Health and Research and Program Development Coordinator, BIrzeit University, Occupied Palestine
+**Neta Golan**: Co-Founder of International Solidarity Movement (ISM) 
+**Tsilli Goldenberg**: Retired teacher, political activist, Jerusalem, Israel
+**Elleanne Green**: Activist and founder of PALESTINE LIVE, UK
+**DI. Friedrich Gries**s: Former President of the European Federation, Vienna, Austria
+**Gordon Griffin**: Actor and Casting Director of the English Theatre of Hamburg, Germany 
+**Prof.Dr. Alfred Grosser**: Peace prize winner of the German Booksellers (Friedenspreisträger des deutschen Buchhandels) Paris, France
+**Serge Grossvak**: Director of Social Center, member of l'UJRE (Directeur de Centre Social, membre de l'UJRE - Union des Juifs pour la Résistance et l'Entraide), Marseille, France
+**Diane Guildoni**: Free Speech Supporter, Missouri, USA
+**Jeff Halper**, Ph.D.: Anthropologist, author, lecturer, and political activist, Co-Founder and Director of the Israeli Committee Against House Demolitions (ICAHD)
+**Dr. Ilana Hammerman**: Writer, editor and translator, Jerusalem
+**Dr. Roni Hamermann**: Hebrew University, Jerusalem, co-founder of Machsomwatch, Israel
+**Oliver Hashemizadeh**: BDS Austria, Vienna, Austria
+**Evelyn Hecht-Galinski**: Publicist, Germany
+**Chris Hedges**: Pulitzer-prize winning journalist and former Middle East Bureau Chief for The New York Times, USA
+**Karl Helmreich**, OSB: Verein Netzwerk, Benediktiner des Stiftes Melk, Leobersdorf, Austria
+**Shir Hever**: Heidelberg, Germany 
+**Dr. Hannes Hofbauer**: Publisher and publicist (Verleger und Publizist) Vienna, Austria
+**Joyce Holliday**: Author, United Church of Christ Minister, North Carolina, USA
+**Tikva Honig-Parnass**, PhD: Jerusalem, Israel
+**Univ.-Prof. Dr. iur. Frank Höpfel**: University of Vienna, Institute for Criminal Law and Criminology (Univ.-Institut für Strafrecht und Kriminologie), Austria
+**Jocelyn Hurndall**: Mother of Tom Hurndall, International Solidarity Movement (ISM) volunteer who was shot in the head by an Israeli sniper
+**Patricia Hynes**, MS JD: North Carolina, USA
+**Israeli Committee Against House Demolitions (ICAHD)**
+**Priv.-Doz. Anne Maximiliane Jäger-Gogoll**: Philipps-Universität Marburg, Germany
+**Dahr Jamail**: Journalist, author, recipient of the 2008 Martha Gellhorn Prize for Journalism, USA
+**Jane Jewell**, L.R.A.M. B.A. (mus) Hons, USA 
+**Dr. Ghada Karmi**: Palestinian academic and Research Fellow, Institute of Arabic and Islamic Studies, University of Exeter, UK
+**Rev. Dr. R. David Kaylor**: Professor of Religion, Emeritus, Davidson College, North Carolina, USA
+**Dr. Elizabeth B. Keiser**: Charles A. Dana Professor Emerita, English Dept., Guilford College, North Carolina, USA
+**Dr. R. Melvin Keiser**: Professor Emeritus, Religious Studies Dept., Guilford College, North Carolina, USA
+**Ramsis Kilani**: Student, his father, five of his siblings and his father’s second wife (all German citizens) were killed in Gaza during "Operation Protective Edge," Universität Siegen, Germany
+**Martha King**: Human rights activist, Missouri, USA
+**Prof. Ali Kohlbacher**: Austrian anti-fascist, Board Member of ‘Österreichischen Nord-Süd-Instituts,’ Vienna, Austria
+**Klaus Kucharz**: Austria  
+**Christopher Ben Kushka**: Human rights activist, (BDS + ISM), Ungedanken, Germany  
+**Sabine Lafazani**: Data Analyst, Localization (IT), Vienna, Austria
+**Ilias Lafazanis**: Data Analyst (IT), Vienna, Austria
+**Susan Larhrop**: President, Just Peace for Israel/Palestine, North Carolina, USA
+**Derek Laney**: Co-Executive Director, Missourians Organizing for Reform and Empowerment, Missouri, USA
+**Sigrid Langhaeuser**: Historian, Anglicist, translator, Germany
+**Wilhelm Langthaler**: Author and anti-globalization activist (Autor und Anti-Globalisierungsaktivist), Vienna, Austria
+**Renee Leavy**, PhD (biochemistry): Rebbetzin, New York, USA
+**Dianne Lee**: Professor, St. Louis Community College, Missouri, USA
+**Martin Lejeune**: Journalist; in Gaza during the 2014 assault and later gave testimony at the Special Session of the Russell Tribunal, Berlin, Germany
+**Dr. Kurt Leitner**: Vienna, Austria
+**Gunther Lorbeer**: Vienna, Austria
+**Dr. Michael Lüders**: Political scientist and scholar in Islamic studies, author, political and economic advisor, Germany
+**Miriam Margolyes**, OBE: Actress and voice artist, UK/Australia
+**Lubna Masarwa**: Political activist, Palestine 48, Jerusalem 
+**Mohammed Matter**: Journalist from Gaza, Berlin, Germany
+**Gabriele Matzner**: Retired Austrian diplomat, Vienna, Austria
+**Rudolf Mayerhofer-Sebera**: Manager und Zivilgesellschafts-Netzwerker, Berndorf, Austria
+**Raymond L. McGovern**:  Founder, Veterans Intelligence Professionals for Security (VIPS), USA
+**Cynthia McKinney**, PhD: Politician and activist, Georgia, USA
+**Dr. Janice McLaughlin**: MM, Zimbabwe, former President of Maryknoll Sisters, (imprisoned by colonial regime in Rhodesia), New York, USA 
+**Joe Meadors**: USS Liberty Survivor, Freedom Flotillas I, II and III Participant
+**Prof. Dr. Georg Meggle**: Universität Leipzig - Dir. Institut für Philosophie (emerit.), AUC, American University in Cairo, Germany
+**Elizabeth Murray**: former Deputy National Intelligence Officer for the Near East, National Intelligence Council (retired), USA
+**Carol Murry**, DrPH: University of Hawai'i Professor, passenger US Boat to Gaza, international health consultant, USA
+**Dorothy Naor**: Anti-occupation activist, Israel
+**Ofer Neiman**: Boycott from Within, Israel
+**Oded Netivi**: Painter and author, Heidelberg, Germany
+**Henry Norr**: Technology journalist and activist, USA
+**Jonathan Ofir**: Israeli musician, conductor and blogger/writer based in Denmark 
+**Cindy Osborne**: North Carolina, USA
+**Prof. Dr. Norman Paech**: Hamburg, Germany
+**Maxine Peake**: Stage, radio, film and television actress, England
+**Nurit Peled-Elhanan**, PhD: Sakharov prize laureate for human rights 2001, Jerusalem
+**William T. Quick**: Attorney at law, member Missouri Board of Directors of National Lawyers Guild, Missouri, USA
+**Mazin Qumsiyeh**, Ph.D.:  Professor, Bethlehem University, Palestine
+**William Ramsey**: Human rights and peace activist, North Carolina, USA 
+**Prof. Dr. Fanny-Michaela Reisin**:  Former President of the International League for Human Rights; Board Member of the Jewish Voice for a Just Peace in Germany 
+**Lillian Rosengarten**: Writer and poet, activist to end the occupation, USA
+**Coleen Rowley**: retired FBI agent and former Division Legal Counsel, one of Time Magazine's 2002 Persons of the Year
+**Dr. Norbert Rozsenich**: Chairman of IFAC-Austria, Vienna, Austria
+**Kali Rubaii**: PhD Candidate in Anthropology, University of California, USA 
+**Waltraud Schauer**: Peace activist, served as a human shield in Iraq, Austria
+**Guenter Schenk**: grenzenloser Friedensaktivist / Peace activist beyond borders, Strasbourg 
+**Herzl Schubert**: High school teacher, Ort Ebin, Ramat Gan
+**Dr. Tariq Shadid** (Doc Jazz): Surgeon and musician
+**Uri Shani**: Israeli theater director, author and lecturer, Israel
+**Tali Shapiro**: Human rights activist and translator (Menschenrechtsaktivistin, Übersetzerin)
+**David Schermerhorn**: Retired film producer, has joined seven attempts to reach Gaza by ship and succeeded three times; he was captured by Israeli Naval Forces during the 2010 Flotilla, Washington, USA 
+**Amir Schnitman**: Missouri, USA
+**Konrad Schön**: Styrian Peace Platform (Steirische Friedensplattform), Graz, Austria
+**Georg Schönfeld**: Architekt, Vienna, Austria
+**Dr. Albrecht Schröter**: Mayor of Jena, Germany
+**Haim Schwarczenberg**: Photographer, Jaffa, Israel 
+**Gigi Segall**: Vienna, Austria
+**David Sheen**: Journalist; in Gaza during the 2014 assault and later gave testimony at the Special Session of the Russell Tribunal, Dimona, Israel
+**Yael Shomroni**: Missouri, USA
+**Clare Short**: British politician and former MP, UK
+**Rich Siege**l: Musician/activist, New Jersey, USA
+**Dr. Salman Abu Sitta**: Palestinian historian, UK
+**Dr. Peter Smutny**: Journalist, Biedermannsdorf, Austria
+**Franz Sölkner**: Chairperson Styrian Peace Platform (Obmann, Steierische Friedensplattform) Graz, Austria
+**St. Louis Women in Black: Missouri, USA**
 Lia Tarachansky: Israeli-Russian journalist, Israel 
 Prof. Dr. Jack Thiessen: New Bothwell, Manitoba, Canada
 Mary Hughes Thompson: Co-founder Free Gaza Movement Writer/Freedom Sailor
