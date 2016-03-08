@@ -394,7 +394,7 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 **Elleanne Green**: Activist and founder of PALESTINE LIVE, UK
 
 
-**Gordon Griffin**: Actor and Casting Director of the English Theatre of Hamburg, Germany
+**Gordon Griffin**: Actor/Casting Director: English Theatre of Hamburg, Germany
 
 
 **Prof.Dr. Alfred Grosser**: Peace prize winner of the German Booksellers (Friedenspreisträger des deutschen Buchhandels) Paris, France
