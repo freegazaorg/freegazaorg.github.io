@@ -4,6 +4,7 @@ layout: post
 ---
 
 
+
 > _'Everyone has the right to freedom of opinion and expression; this right includes freedom to hold opinions without interference and to seek, receive and impart information and ideas through any media and regardless of frontiers.'_ 
  United Nations, Universal Declaration of Human Rights
  
@@ -149,15 +150,13 @@ ________________
 ________________
 
 
-**Additional signers of this open letter from around the world; actors, activists, politicians, journalists, former members of Parliament and US Congress, USS Liberty survivors, psychoterapists/psycholgists, professors, writers and more **
-
+**Additional signers of this open letter from around the world; actors, activists, politicians, journalists, former members of Parliament and US Congress, USS Liberty survivors, psychoterapists/psycholgists, professors, writers and more**
 
 **Avigail Abarbanel**: Psychotherapist, Inverness, Scotland
 **Kaveh Ahangar**: Rapper, activist, journalist, Berlin, Germany
 **J'Ann Schoomaker Allen**: Missouri, USA
 **James D. Allen Jr**., PhD: Missouri, USA
 **Ofra Ben Artzi**: Israeli citizen
-
 
 **Alice Bach**: Professor of religious studies, anti-war activist, journalist, Cleveland, USA
 **Frank Barat**: Coordinator Russell Tribunal on Palestine, Belgium 
@@ -329,6 +328,3 @@ Canada
 
 
 **Ofra Yeshua-Lyth**: Journalist and writer, Israel
-
-
-
