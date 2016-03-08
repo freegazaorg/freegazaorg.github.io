@@ -3,6 +3,7 @@ published: true
 layout: post
 ---
 
+
 CONTACT: Heather Wokusch, Founder of 'In Grandmothers' Words', USA/Austria (English): <heather@heatherwokusch.com> 
 
 
@@ -618,6 +619,8 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 
 
 **Kali Rubaii**: PhD Candidate in Anthropology, University of California, USA
+
+**Jowan Safadi**, singer/songwriter, Haifa, Palestine48
 
 
 **Guenter Schenk**: grenzenloser Friedensaktivist / Peace activist beyond borders, Strasbourg
