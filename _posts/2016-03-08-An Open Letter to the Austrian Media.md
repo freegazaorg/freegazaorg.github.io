@@ -10,6 +10,7 @@ layout: post
  
 **Overview**
 
+![Hedy:Nuremberg.png]({{site.baseurl}}/images/Hedy:Nuremberg.png)
 We request that the Austrian media take responsibility to report with accuracy and impartiality on events in Israel/Palestine and on those who seek a just and peaceful resolution of conflicts in the region. This issue arose most recently in the Austrian media’s treatment of the Holocaust witness Hedy Epstein who was to have spoken at an international event in Vienna.
 
 > We, members of the global community, are deeply concerned about the Austrian media's recent treatment of Hedy Epstein and the clear pattern of silencing voices which are critical of the policies and practices of the government of Israel. Questioning the policies of a government does not equate to hating a country. Freedom of speech is a basic democratic value incumbent upon society to uphold and for media everywhere to pursue.
