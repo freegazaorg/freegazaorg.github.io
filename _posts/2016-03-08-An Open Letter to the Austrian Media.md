@@ -104,6 +104,8 @@ ________________
 **James D. Allen Jr**., PhD: Missouri, USA
 **Teresa Arrietta**: Journalist, Kritzendorf, Austria
 **Ofra Ben Artzi**: Israeli citizen
+
+
 **Alice Bach**: Professor of religious studies, anti-war activist, journalist, Cleveland, USA
 **Dr. Wolfgang Bahr**: Journalist, translator, reader (Journalist, Übersetzer und Verlagslektor) Vienna, Austria
 **Frank Barat**: Coordinator Russell Tribunal on Palestine, Belgium 
@@ -126,10 +128,14 @@ Univ.Prof.Dr. med. Ernst Berger: Specializing in psychiatry and neurology, Vienn
 Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **AnnaLisa Erdemgil Brandstätter**: Vienna, Austria
 **Dr. (theol.) Martin Breidert**, Germany
-**Diana Buttu**: Attorney 
+**Diana Buttu**: Attorney
+
+
 **Mark Chmiel**: Professor of Humanities, Maryville University, Missouri, USA; author of "Eli Wiesel & the Politics of Moral Leadership"
 **Kia Corthron**: Novelist/playwright, USA
 **Anne Herzon Craig**, M.Ed.: North Carolina, USA
+
+
 **KZ Gemeinschaft Dachau** (Concentration Camp Community, Dachau), Germany
 **Rawan Allan Damen**: Senior Producer, Al Jazeera, Doha, Qatar
 **Lawrence Davidson**: Emeritus Professor of History, West Chester University, Penn., USA
@@ -137,15 +143,21 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Dominique Doujenis**: Vienna, Austria
 **Gretta Duisenberg**: Founder and chair "Stop the Occupation," The Netherlands
 **Evelyn Dürmayer**: Attorney (Juristin) Vienna, Austria
+
+
 **Fritz Edlinger**: Secretary General, Society for Austro-Arab Relations, Vienna, Austria
 **Dr. Edda Egerer**: Women in Black, Vienna, Austria
 **DI Erik Egerer**: Architect, Vienna, Austria
 **Irmgard Ehrenberger**: Vienna, Austria
 **Debra Ellis**: MS Counseling and Human Systems, co-founder of The Islah Reparations Project, retired University of California, Santa Cruz, USA
 **Jim Ennes**: USS Liberty Survivor, author, "Assault on the Liberty," USA
+
+
 **Ayed Fadel**: Kabareet, Haifa
 **Eva Fitz**: Co-founder ‘Kirchenfrauenkabarett, eh. Präsidentin KA,’ Vorarlberg, Austria 
 **Peter Fleissner**: Social scientist, coordinator of Transform! Austria
+
+
 **Kathlyn Gadd**: Chartered Accountant, UK 
 **Dr. Richard Gadd**: Retired Head of Nuclear Medicine Imaging, RSUH, UK
 **Ophira Gamliel**, PhD: Research scholar at Ruhr University Bochum, Germany
@@ -160,6 +172,8 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Prof.Dr. Alfred Grosser**: Peace prize winner of the German Booksellers (Friedenspreisträger des deutschen Buchhandels) Paris, France
 **Serge Grossvak**: Director of Social Center, member of l'UJRE (Directeur de Centre Social, membre de l'UJRE - Union des Juifs pour la Résistance et l'Entraide), Marseille, France
 **Diane Guildoni**: Free Speech Supporter, Missouri, USA
+
+
 **Jeff Halper**, Ph.D.: Anthropologist, author, lecturer, and political activist, Co-Founder and Director of the Israeli Committee Against House Demolitions (ICAHD)
 **Dr. Ilana Hammerman**: Writer, editor and translator, Jerusalem
 **Dr. Roni Hamermann**: Hebrew University, Jerusalem, co-founder of Machsomwatch, Israel
@@ -174,10 +188,16 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Univ.-Prof. Dr. iur. Frank Höpfel**: University of Vienna, Institute for Criminal Law and Criminology (Univ.-Institut für Strafrecht und Kriminologie), Austria
 **Jocelyn Hurndall**: Mother of Tom Hurndall, International Solidarity Movement (ISM) volunteer who was shot in the head by an Israeli sniper
 **Patricia Hynes**, MS JD: North Carolina, USA
+
+
 **Israeli Committee Against House Demolitions (ICAHD)**
+
+
 **Priv.-Doz. Anne Maximiliane Jäger-Gogoll**: Philipps-Universität Marburg, Germany
 **Dahr Jamail**: Journalist, author, recipient of the 2008 Martha Gellhorn Prize for Journalism, USA
-**Jane Jewell**, L.R.A.M. B.A. (mus) Hons, USA 
+**Jane Jewell**, L.R.A.M. B.A. (mus) Hons, USA
+
+
 **Dr. Ghada Karmi**: Palestinian academic and Research Fellow, Institute of Arabic and Islamic Studies, University of Exeter, UK
 **Rev. Dr. R. David Kaylor**: Professor of Religion, Emeritus, Davidson College, North Carolina, USA
 **Dr. Elizabeth B. Keiser**: Charles A. Dana Professor Emerita, English Dept., Guilford College, North Carolina, USA
@@ -186,7 +206,9 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Martha King**: Human rights activist, Missouri, USA
 **Prof. Ali Kohlbacher**: Austrian anti-fascist, Board Member of ‘Österreichischen Nord-Süd-Instituts,’ Vienna, Austria
 **Klaus Kucharz**: Austria  
-**Christopher Ben Kushka**: Human rights activist, (BDS + ISM), Ungedanken, Germany  
+**Christopher Ben Kushka**: Human rights activist, (BDS + ISM), Ungedanken, Germany
+
+
 **Sabine Lafazani**: Data Analyst, Localization (IT), Vienna, Austria
 **Ilias Lafazanis**: Data Analyst (IT), Vienna, Austria
 **Susan Larhrop**: President, Just Peace for Israel/Palestine, North Carolina, USA
@@ -199,6 +221,8 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Dr. Kurt Leitner**: Vienna, Austria
 **Gunther Lorbeer**: Vienna, Austria
 **Dr. Michael Lüders**: Political scientist and scholar in Islamic studies, author, political and economic advisor, Germany
+
+
 **Miriam Margolyes**, OBE: Actress and voice artist, UK/Australia
 **Lubna Masarwa**: Political activist, Palestine 48, Jerusalem 
 **Mohammed Matter**: Journalist from Gaza, Berlin, Germany
@@ -211,23 +235,35 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Prof. Dr. Georg Meggle**: Universität Leipzig - Dir. Institut für Philosophie (emerit.), AUC, American University in Cairo, Germany
 **Elizabeth Murray**: former Deputy National Intelligence Officer for the Near East, National Intelligence Council (retired), USA
 **Carol Murry**, DrPH: University of Hawai'i Professor, passenger US Boat to Gaza, international health consultant, USA
+
+
 **Dorothy Naor**: Anti-occupation activist, Israel
 **Ofer Neiman**: Boycott from Within, Israel
 **Oded Netivi**: Painter and author, Heidelberg, Germany
 **Henry Norr**: Technology journalist and activist, USA
+
+
 **Jonathan Ofir**: Israeli musician, conductor and blogger/writer based in Denmark 
 **Cindy Osborne**: North Carolina, USA
+
+
 **Prof. Dr. Norman Paech**: Hamburg, Germany
 **Maxine Peake**: Stage, radio, film and television actress, England
 **Nurit Peled-Elhanan**, PhD: Sakharov prize laureate for human rights 2001, Jerusalem
+
+
 **William T. Quick**: Attorney at law, member Missouri Board of Directors of National Lawyers Guild, Missouri, USA
 **Mazin Qumsiyeh**, Ph.D.:  Professor, Bethlehem University, Palestine
+
+
 **William Ramsey**: Human rights and peace activist, North Carolina, USA 
 **Prof. Dr. Fanny-Michaela Reisin**:  Former President of the International League for Human Rights; Board Member of the Jewish Voice for a Just Peace in Germany 
 **Lillian Rosengarten**: Writer and poet, activist to end the occupation, USA
 **Coleen Rowley**: retired FBI agent and former Division Legal Counsel, one of Time Magazine's 2002 Persons of the Year
 **Dr. Norbert Rozsenich**: Chairman of IFAC-Austria, Vienna, Austria
-**Kali Rubaii**: PhD Candidate in Anthropology, University of California, USA 
+**Kali Rubaii**: PhD Candidate in Anthropology, University of California, USA
+
+
 **Waltraud Schauer**: Peace activist, served as a human shield in Iraq, Austria
 **Guenter Schenk**: grenzenloser Friedensaktivist / Peace activist beyond borders, Strasbourg 
 **Herzl Schubert**: High school teacher, Ort Ebin, Ramat Gan
@@ -248,18 +284,28 @@ Dr. Mark J.  Boyd, PhD: North Carolina, USA
 **Dr. Salman Abu Sitta**: Palestinian historian, UK
 **Dr. Peter Smutny**: Journalist, Biedermannsdorf, Austria
 **Franz Sölkner**: Chairperson Styrian Peace Platform (Obmann, Steierische Friedensplattform) Graz, Austria
+
+
 **St. Louis Women in Black: Missouri, USA**
+
+
 **Lia Tarachansky**: Israeli-Russian journalist, Israel 
 **Prof. Dr. Jack Thiessen**: New Bothwell, Manitoba, Canada
 **Mary Hughes Thompson**: Co-founder Free Gaza Movement Writer/Freedom Sailor
 Canada
 **Baroness Dr Jenny Tonge**: Former MP House of Lords, Westminster, England
 **Phillip F. Tourney**: Liberty Survivor, USA
+
+
 **Joan Unterweger**: Retired IT specialist, Vienna, Austria
 **Peter Unterweger**: Retired member of the Secretariat of the Int'l Metalworkers' Federation, Vienna, Austria
+
+
 **Brigitta Vavken**: Austria
 **Mariana Vazquez**: Vienna, Austria
 **Prof. Dr. Rolf Verleger**: Psychologist, member of the Central Council of Jews in Germany 2005-09 (Psychologe, Mitglied im Zentralrat der Juden in Deutschland 2005-09)
+
+
 **Dr. Angela Waldegg**: Artist, Vienna, Austria 
 **Naomi Wallace**: Playwright/screenwriter, USA
 **Darlene Wallach**: Anti-zionist activist; social justice/human rights activist
@@ -274,5 +320,9 @@ Canada
 **Em. Professor Ruth Wodak**, FAcSS: Distinguished Professor and Chair in Discourse Studies, Lancaster University/University Vienna
 **Heather Wokusch**: Founder of the 'In Grandmothers' Words' project, Austria
 **Colonel Ann Wright**: US Army Colonel (retired) and former US Diplomat who resigned in 2003 in opposition to the Iraq war
+
+
 **Ofra Yeshua-Lyth**: Journalist and writer, Israel
+
+
 **Rudolf O. Zucha**: Psychologist, publisher, Vienna, Austria
