@@ -549,7 +549,7 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 
 
 
-**Jonathan Ofir**: Israeli musician, conductor and blogger/writer based in Denmark
+**Jonathan Ofir**: Israeli musician, conductor/blogger/writer based in Denmark
 
 
 **Cindy Osborne**: North Carolina, USA
