@@ -480,7 +480,7 @@ Development Coordinator, BIrzeit University, Occupied Palestine
 
 
 
-**Susan Larhrop**: President, Just Peace for Israel/Palestine, North Carolina, USA
+**Susan Larhrop**: President, Just Peace for Israel/Palestine, N. Carolina USA
 
 
 **Derek Laney**: Co-Executive Director, Missourians Organizing for Reform and Empowerment, Missouri, USA
