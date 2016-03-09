@@ -4,6 +4,7 @@ layout: post
 ---
 
 
+
 CONTACT: 
 
 * Heather Wokusch, Founder of 'In Grandmothers' Words', USA/Austria (English): <heather@heatherwokusch.com> 
@@ -148,7 +149,7 @@ Journalists everywhere face pressure from powerful interest groups seeking to si
 * **Heather Wokusch**: Founder of the 'In Grandmothers' Words' project, Austria
 * **Rudolf O. Zucha**: Psychologist, publisher, Vienna, Austria
 
-## Additional signers of this open letter from around the world; actors, activists, politicians, journalists, former members of Parliament and US Congress, USS Liberty survivors, psychoterapists/psycholgists, professors, writers and more
+## Additional signers of this open letter from around the world; actors, activists, politicians, journalists, former members of Parliament and US Congress, USS Liberty survivors, psychotherapists/psycholgists, professors, writers and more
 
 * **Avigail Abarbanel**: Psychotherapist, Inverness, Scotland
 * **Kaveh Ahangar**: Rapper, activist, journalist, Berlin, Germany
@@ -282,4 +283,3 @@ Journalists everywhere face pressure from powerful interest groups seeking to si
 * **Dr. Charlotte Wiktorsson**: Gothenburg, Sweden
 * **Colonel Ann Wright**: US Army Colonel (retired) and former US Diplomat who resigned in 2003 in opposition to the Iraq war
 * **Ofra Yeshua-Lyth**: Journalist and writer, Israel
-
