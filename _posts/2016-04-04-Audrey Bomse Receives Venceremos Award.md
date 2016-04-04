@@ -18,4 +18,4 @@ Audrey has been an active member of the National Lawyers Guild for 30 years, is 
 
 
 
-http://www.nlg.org/convention/2016-nlg-honorees
+[http://www.nlg.org/convention/2016-nlg-honorees](http://www.nlg.org/convention/2016-nlg-honorees)
