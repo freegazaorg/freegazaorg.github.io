@@ -4,7 +4,9 @@ layout: post
 ---
 By Greta Berlin, Co-Founder, Free Gaza movement
 
-![Arriving2.jpg]({{site.baseurl}}/images/Arriving2.jpg)We were so late leaving Cyprus for Gaza. The 30+ passengers waiting in the hot, dusty confines of the University in Nicosia were fed up and beginning to wonder if two boats ever existed. Every day, I went into the morning meeting and said, “Not today, they are in a storm.” Or, “Not today, they have had problems with the steering.” Or, “Not today, one of the captains quit.” 
+![Arriving2.jpg]({{site.baseurl}}/images/Arriving2.jpg)
+
+We were so late leaving Cyprus for Gaza. The 30+ passengers waiting in the hot, dusty confines of the University in Nicosia were fed up and beginning to wonder if two boats ever existed. Every day, I went into the morning meeting and said, “Not today, they are in a storm.” Or, “Not today, they have had problems with the steering.” Or, “Not today, one of the captains quit.” 
 
 We had been due to sail on July 31 2008. It was now August 18, and the last communication we received was the boats would finally pull into the harbor in Larnaca on the 20th, three weeks late. 
 
@@ -44,11 +46,4 @@ On this 8th anniversary, we would like to remember the passengers and land-crew 
 
 “Smooth sailing to Sister Ann Montgomery, Hedy Epstein, Vittorio Arrigoni, Scott Kennedy. 
 
-Thank you courageous Palestinians who cheered us on that day and continued to cheer when we landed in October, November and December of 2008. We have not forgotten the joy we all had, and we will continue to sail until Gaza is free.  Although no boats have been able to land since December 2008, and Free Gaza is still the only initiative to make it into port, boats are still attempting to break the illegal siege. As I write this memory, a woman’s boat is getting ready to sail in September. We wish them well. 
-
-
-
-
-
-
-
+Thank you courageous Palestinians who cheered us on that day and continued to cheer when we landed in October, November and December of 2008. We have not forgotten the joy we all had, and we will continue to sail until Gaza is free.  Although no boats have been able to land since December 2008, and Free Gaza is still the only initiative to make it into port, boats are still attempting to break the illegal siege. As I write this memory, a woman’s boat is getting ready to sail in September. We wish them well.
