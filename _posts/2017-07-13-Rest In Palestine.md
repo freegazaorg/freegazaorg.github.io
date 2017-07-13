@@ -25,7 +25,7 @@ They were released from prison at Erez Checkpoint after midnight. They walked th
 
 When she returned to the US with her twin sister, Donna, they embarked on a lengthy tour of the Bay area, speaking about their experiences during the five months they worked for the ISM, informing audiences with their stories and photos. In that presentation, they were shocking us with the truth about the brutal way the people of Gaza are treated by the Israelis.
 
-Audiences were stunned by the horror of the video that Darlene took of a Gaza fishing boat being attacked by a water cannon. She kept the camera rolling up on deck, although the continuous  stream of water that was smashing the windows of the cabin could have killed her. Darlene was completely fearless, and her own safety took a back seat when it came to documenting (or capturing) Israeli atrocities on video. It's one of the most powerful videos anyone has ever seen.
+Audiences were stunned by the horror of the video that Darlene took of a Gaza fishing boat being attacked by a water cannon. She kept the camera rolling up on deck, although the continuous  stream of water that was smashing the windows of the cabin could have killed her. Darlene was completely fearless, and her own safety took a back seat when it came to documenting (capturing) Israeli atrocities on video. It's one of the most powerful videos anyone has ever seen.
 
 
 Rest In Palestine, dear Darlene.
