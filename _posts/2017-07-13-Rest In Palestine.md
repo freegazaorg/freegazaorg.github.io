@@ -20,7 +20,6 @@ In a Nov. 21, 2008 article titled, Activist from San Jose jailed in Israel, Patr
 
 > In a statement, the activists said they were fishing in Gaza waters seven miles off the coast of Deir el-Balah, in what they claim is a zone authorized for Palestinian fisherman by the Oslo agreements of 1993 and 1994. They said they were “abducted at gunpoint by Israeli frogmen and taken to Israel.”
 
-They were released from prison at Erez Checkpoint after midnight. They walked their way home across the no-man's-land back through Beit Lahia to Gaza City.
 
 
 When she returned to the US with her twin sister, Donna, they embarked on a lengthy tour of the Bay area, speaking about their experiences during the five months they worked for the ISM, informing audiences with their stories and photos. In that presentation, they were shocking us with the truth about the brutal way the people of Gaza are treated by the Israelis.
