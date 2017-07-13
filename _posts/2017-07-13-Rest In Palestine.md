@@ -12,6 +12,10 @@ In August 2008, she was on our first boat to dock in Gaza, US Liberty, where she
 
 She was incredibly brave when she accompanied the fishermen out to fish, often risking her life to video the actions of the Israeli navy when they shot at the boats or poured freezing water on the men trying to earn a living. In November, 2008, she was kidnapped by the navy, along with two other International Solidarity activists as she was accompaning the fishermen. She was thrown into prison, then deported for being the acivist with a heart and a camera.
 
+Here's a link to a Democracy Now clip from 2008 where Darlene talks to Amy Goodman about her experience.
+
+[https://www.democracynow.org/2008/11/21/us_activist_detained_in_israeli_jail](https://www.democracynow.org/2008/11/21/us_activist_detained_in_israeli_jail)
+
 
 When she returned to the US with her twin sister, Donna, they embarked on a lengthy tour of the Bay area, speaking about their experiences during the five months they worked for the ISM, informing audiences with their stories and photos. In that presentation, they shocked us with the truth about the brutal way the people of Gaza are treated by the Israelis.
 
