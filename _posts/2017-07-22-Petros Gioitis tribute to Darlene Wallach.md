@@ -1,6 +1,7 @@
 ---
 published: true
 layout: post
+title: Petros Gioitis tribute to Darlene Wallach
 ---
 Petros Giotis was on our first trip to Gaza in August, 2008. Below is his tribute to our fallen activist. 
 
