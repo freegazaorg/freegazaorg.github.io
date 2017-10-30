@@ -8,7 +8,7 @@ Badee Dwaik: badia.dwaik@gmail.com, +353 (0) 877452875
  
 FOR IMMEDIATE RELEASE
  
-October 29, 2017: A British delegation who walked across Europe to Palestine to protest the centennial of the Balfour Declaration, were participating in a peaceful demonstration in Hebron when they were violently attacked by a settler living in the illegal settlement of Kfar Etzion. The settler, Ofer Hanna, regularly indimidates peaceful demonstrations. When one of the Hebron leaders blocked him from attacking further, Hanna became enraged and viciously kicked the activist, Mahdi Meraeb, knocking him to the ground.
+October 29, 2017: A British delegation who walked across Europe to Palestine to protest the centennial of the Balfour Declaration, was participating in a peaceful demonstration in Hebron when they were violently attacked by a settler living in the illegal settlement of Kfar Etzion. The settler, Ofer Hanna, regularly intimidates peaceful demonstrations. When one of the Hebron leaders blocked him from attacking further, Hanna became enraged and viciously kicked the activist, Mahdi Meraeb, knocking him to the ground.
  
 The police stood by while the settler continued to threaten and scream obscenities as he blocked three local leaders from walking with the British delegation. Finally, the police moved Hanna away but he was not arrested. However, the activists that were attacked; Nidal Jabri and Mahdi Meraeb, were handcuffed and taken away. They have now been detained for several hours in an Israeli prison near the illegal settlement.
  
