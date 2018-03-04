@@ -1,4 +1,9 @@
-## History of the Free Gaza Boats to Gaza
+---
+layout: post
+title: History of the Free Gaza Boats to Gaza
+---
+
+
 
 Many of our followers have asked us for a list of the voyages that the Free Gaza movement organized and ran. Since the media often insists on labeling Freedom Flotilla I as a Turkish initiative, we would like to set the record straight as we were the primary organizers of that first multi-ship voyage. That is the flotilla where Israel attacked and murdered our passengers while we were in international waters The Free Gaza movement sent five successful voyages into Gaza, beginning in August 2008 and organized another five voyages that were brutally stopped by the Israeli occupation navy. 
 
