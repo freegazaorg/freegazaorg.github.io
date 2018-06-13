@@ -4,9 +4,6 @@ permalink: /howto/
 title: How to modify the website
 ---
 
-freegaza.org website
-====================
-
 ## How to login to the editing dashboard on prose.io
 
 * go to http://prose.io
