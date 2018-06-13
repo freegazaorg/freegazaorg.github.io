@@ -1,7 +1,7 @@
 title:            FreeGaza
 description:      "A human rights organization that challenges Israel's illegal siege on Gaza"
 # Your site's domain goes here. Leave localhost server or blank when working locally.
-url:              http://www.freegaza.org
+url:              https://www.freegaza.org
 tags: 
   - Palestine
   - Gaza
