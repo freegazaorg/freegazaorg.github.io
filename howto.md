@@ -1,3 +1,9 @@
+---
+layout: page
+permalink: /howto/
+title: How to modify the website
+---
+
 freegaza.org website
 ====================
 
