@@ -23,6 +23,19 @@ THE DATESTAMP), for example: `_posts/2018-06-13-first-episode-of-2018-trip-to-ga
 
 After editing it is going to take 5/10 minutes to go live on the website
 
+## How to add images
+
+The system is a little buggy for images, it should work on Chrome.
+
+* Open the post you want to add an image to
+* First save any other change you made to the text with the diskette icon
+* Now drag and drop the image into the page (images should be below 500KB)
+* Now the page freezes, but it should be uploading it
+* Wait 5 seconds for the upload to complete, then click RELOAD (F5), even if
+a warning pops up, go ahead
+* You should find that this was added to the page: `[](/images/yourimage.jpg)`
+* Save the post again with the diskette button
+
 ## How to edit website static pages
 
 A "static page" is any page on the website that is not a news item or a post,
