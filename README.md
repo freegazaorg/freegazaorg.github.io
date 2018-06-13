@@ -1,44 +1,40 @@
-# Minimal Mistakes
+freegaza.org website
+====================
 
-**[Minimal Mistakes](http://mmistakes.github.io/minimal-mistakes)** is a two column responsive Jekyll theme perfect for powering your GitHub hosted blog.
+## How to login to the editing dashboard on prose.io
 
-## Minimal Mistakes is all about:
+* go to http://prose.io
+* Just to be safe, click on your AdBlock if you have one and disable it for prose.io
+* Click "Authorize on Github"
+* Login with your "freegazamovement" credentials.
+* Click on the right on "freegazaorg".
+* Click on the center "freegazaorg.github.io"
 
-* Responsive templates. Looking good on mobile, tablet, and desktop.
-* Gracefully degrading in older browsers. Compatible with Internet Explorer 8+ and all modern browsers. 
-* Minimal embellishments -- content first.
-* Optional large feature images for posts and pages.
-* Simple and clear permalink structure.
-* [Custom 404 page](http://mmistakes.github.io/minimal-mistakes/404.html) to get you started.
-* Stylesheets for Pygments and Coderay [syntax highlighting](http://mmistakes.github.io/minimal-mistakes/articles/code-highlighting-post/) to make your code examples look snazzy.
+## How to create a new post
 
-![screenshot of Minimal Mistakes theme](http://mmistakes.github.io/minimal-mistakes/images/mm-theme-post-600.jpg)
+* click on the "_posts" folder
+* click on the green "New file" button
+* change the filename to the title of your article (NO SPACES, KEEP
+THE DATESTAMP), for example: `_posts/2018-06-13-first-episode-of-2018-trip-to-gaza.md`, make sure the filename starts with `_posts/`, has today's date, no spaces and ends with `.md`.
+* Start writing the full length title in the text field below
+* Write the content of the post
+* read instructions in the (?) button if you need help with formatting
+* save with the diskette icon on the top right
 
-## Basic Setup for a new Jekyll site
+After editing it is going to take 5/10 minutes to go live on the website
 
-1. [Install Bundler](http://bundler.io) `gem install bundler` and then install [Jekyll](http://jekyllrb.com) and all dependencies `bundle install`.
-2. Fork the [Minimal Mistakes repo](http://github.com/mmistakes/minimal-mistakes/fork).
-3. Clone the repo you just forked and rename it.
-4. Edit `_config.yml` to personalize your site.
-5. Check out the sample posts in `_posts` to see examples for pulling in large feature images, assigning categories and tags, and other YAML data.
+## How to edit website static pages
 
-[Demo the Theme](http://mmistakes.github.io/minimal-mistakes)
+A "static page" is any page on the website that is not a news item or a post,
+for example "index.md" is the
+homepage.
 
-**Pro-tip:** Delete the `gh-pages` branch after cloning and start fresh by branching off `master`. There is a bunch of garbage in `gh-pages` used for the theme's demo site that I'm guessing you don't need.
+Just scroll down on `prose.io` and click to edit, then click "Save" button on the right when
+you are done.
 
-## More Theme Setup Goodness
+## How to edit old posts
 
-To learn more about how customize this theme, include feature images in posts, use the Grunt build scripts, and some other junk, [read up here](http://mmistakes.github.io/minimal-mistakes/theme-setup/).
+* click on the "_posts" folder to get to the list of all website news items
+* filter them by writing partially the title
+* click to edit, do not modify the top header
 
-
----
-
-## Questions?
-
-Having a problem getting something to work or want to know why I setup something in a certain way? Ping me on Twitter [@mmistakes](http://twitter.com/mmistakes) or [file a GitHub Issue](https://github.com/mmistakes/minimal-mistakes/issues/new). And if you make something cool with this theme feel free to let me know.
-
----
-
-## License
-
-This theme is free and open source software, distributed under the [GNU General Public License](http://mmistakes.github.io/minimal-mistakes/LICENSE) version 2 or later. So feel free to use this Jekyll theme on your site without linking back to me or including a disclaimer. 
