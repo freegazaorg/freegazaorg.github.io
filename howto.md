@@ -24,7 +24,13 @@ THE DATESTAMP), for example: `_posts/2018-06-13-first-episode-of-2018-trip-to-ga
 * read instructions in the (?) button if you need help with formatting
 * save with the diskette icon on the top right
 
-After editing it is going to take 5/10 minutes to go live on the website
+After editing it is going to take 5/10 minutes to go live on the website,
+you can also check its status looking at:
+
+* <https://github.com/freegazaorg/freegazaorg.github.io/commits/master>
+
+Here a yellow dot means that that version is being built, a green tick means built was successful, if there is
+a red mark, contact the admin.
 
 ## How to add images
 
