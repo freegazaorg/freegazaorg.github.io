@@ -6,7 +6,7 @@ title: How to modify the website
 
 ## How to login to the editing dashboard on prose.io
 
-* go to http://prose.io
+* go to <http://prose.io>
 * Just to be safe, click on your AdBlock if you have one and disable it for prose.io
 * Click "Authorize on Github"
 * Login with your "freegazamovement" credentials.
