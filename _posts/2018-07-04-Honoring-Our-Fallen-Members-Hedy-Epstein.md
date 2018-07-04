@@ -4,10 +4,12 @@ layout: post
 ---
 by Greta Berlin
 
-For the next four posts, we will be honoring Hedy Epstein, Scott Kenney, Sister Anne Montgomery, Darlene Wallach and Vittorio Arrigoni, our fallen heroes. May they rest in the heart of Palestine they all loved
+For the next posts, we will be honoring Hedy Epstein, Scott Kennedy, Sister Anne Montgomery, Darlene Wallach and Vittorio Arrigoni, our fallen heroes. May they rest in the heart of the Palestine they all loved
 
 
 ![HedyinCyprus.jpg]({{site.baseurl}}/images/HedyinCyprus.jpg)
+
+
  Hedy in Cyprus as we all waited for the boats
 
 
