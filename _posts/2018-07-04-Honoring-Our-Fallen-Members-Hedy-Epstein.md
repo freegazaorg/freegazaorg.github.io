@@ -3,9 +3,11 @@ published: true
 layout: post
 ---
 Honoring Our Fallen Members – Hedy Epstein
+by Greta Berlin
 
 
 ![HedyinCyprus.jpg]({{site.baseurl}}/images/HedyinCyprus.jpg) Hedy in Cyprus as we all waited for the boats
+
 
 In 2007, when we asked Hedy to join us on that first voyage to Gaza, we told her she needed to know how to swim. Two days later, she sent us an email, “Am in swimming class at the local YWCA. Am determined to learn how to swim.” She was 83. 
 
