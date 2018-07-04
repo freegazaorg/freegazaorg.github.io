@@ -35,8 +35,9 @@ And they did. When Alison finally joined us an hour later, we casually got up an
 And that is the Hedy I will always remember. She never made it on the first trip to Gaza with us in 2008, because she became ill while waiting for the boats to come (they arrived almost a month late), and it was one of the biggest disappointments of her life. She was finally able to go on board the US Boat to Gaza in 2011 even though we were stopped just outside the 7 mile limit of Greece. But at 87, she was not going to quit trying to get to Gaza.
 
 ![HedyinFerguson.png]({{site.baseurl}}/images/HedyinFerguson.png)
+
 One of the last demonstrations she ever attended was against police brutality in Ferguson, Missouri. At the age of 90, she was arrested again. 
 
-She was the epitome of an activist for justice. When she died in 2016, we lost a lioness, a tiny woman with an outrage at injustice that carried her around the world speaking against Israeli terrorism against occupied Palestinians. 
+She was the epitome of an activist for justice. When she died in 2016, we lost a lioness, a tiny woman with an outrage at injustice that carried her around the world speaking against Israeli terrorism of  occupied Palestinians. 
 
 She will be missed by all of us who knew her, worked with her and admired her. There will never be a replacement for women like Hedy Epstein, and that is probably a good thing, because US law enforcement and Israeli occupation thugs could not handle another Hedy Epstein. May you rest in power, dear friend. 
