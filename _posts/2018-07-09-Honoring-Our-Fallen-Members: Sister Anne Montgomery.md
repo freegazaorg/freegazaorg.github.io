@@ -4,6 +4,8 @@ layout: post
 ---
 By the Free Gaza Team
 
+
+
 ![SisterAnne.png]({{site.baseurl}}/images/SisterAnne.png)
 
 Sister Anne reading the names of the murdered sailors on board the USS Liberty
@@ -32,4 +34,4 @@ Someone once asked her once why she continued to disobey. Her answer was exactly
 
 Hedy and Sister Anne were cut from the same mold, women with a passionate desire to acknowledge that “Never Again” was for everyone, and they would work until the end of their days to make the world a better place. 
 
-We’re hoping they are together in whatever form, giving the angels hell for not being more assertive. 
+We’re hoping they are together in whatever form, giving the angels hell for not being more assertive.
