@@ -14,7 +14,7 @@ When we started to organize a passenger list for that first voyage, several of u
 
 Mary Hughes Thompson, one of the co-founders of Free Gaza mentioned that she had been with Sister Anne in Palestine and in Iraq and volunteered to contact her and ask her if she’d like to join us. She immediately and enthusiastically told Mary she’d be delighted.  
 
-Then we found out that she had been involved for decades with Plowshares. Most of us had never heard of the organization before, but we were game.. We had no idea we were soon to meet one of the most remarkable women of our voyage; a woman who had participated in the first Plowshares action against nuclear weapons on September 9, 1980. She had also been part of Christian Peacemaker Teams (CPT) in the occupied West bank, Iraq and the Balkans. 
+Then we found out that she had been involved for decades with Plowshares. Most of us had never heard of the movement before, but we were game. We had no idea we were soon to meet one of the most remarkable women of our voyage; a woman who had participated in the first Plowshares action against nuclear weapons on September 9, 1980. She had also been part of Christian Peacemaker Teams (CPT) in the occupied West bank, Iraq and the Balkans. 
 
 Those of us who weren’t Catholic were a bit apprehensive about meeting her that first time. What do you say to a nun? Would she fit in with so many of us activists who followed no religion? Yes, we knew she was part of CPT, but they prayed every day, twice a day. Some of us were lucky we had prayed twice in our lifetimes. 
 
