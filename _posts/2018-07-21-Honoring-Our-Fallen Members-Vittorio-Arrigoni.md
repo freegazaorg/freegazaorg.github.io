@@ -2,17 +2,17 @@
 published: true
 layout: post
 ---
-It's appropriate to post this beautifully-written tribute to Vik on the day the current flotilla leaves for Gaza. In his memory, Free Gaza wishes then a safe journey. As he always said, 'Stay Human."
-
-
-
-By Bella Co-founder, the Free Gaza movement
+**It's appropriate to post this beautifully-written tribute to Vik on the day the current flotilla leaves for Gaza. In his memory, Free Gaza wishes then a safe journey. As he always said, 'Stay Human."**
 
 
 
 ![Vittorio.jpg]({{site.baseurl}}/images/Vittorio.jpg)
 
-Vik on the day we landed in Gaza, August 23, 2008
+
+Vik and Captain John on the day we landed in Gaza, August 23, 2008
+
+
+By Bella Co-founder, the Free Gaza movement
 
 
 Vik was part of my life for seven years. With a family background of anti-fascism, he carried a deep personal belief in social justice and peace, and a commitment to writing, working, fighting for these. By working hard throughout most of the year in Italy, while developing his voice as a writer in the evenings via the internet, he self-funded regular windows of volunteering abroad. 
@@ -83,9 +83,4 @@ Vik never found the world an easy place to be, but then those of us who love jus
 
 Palestine gave him that, his life’s work. It gave him a community that loved him, and now will always love him. And for someone who had always, fundamentally, felt himself to be homeless, Gaza became home. I know if we could ask Vik now, he would say he did not lose his life in Palestine; rather Palestine gave him his life. 
 
-He would regret nothing. 
-
-
-
-
-
+He would regret nothing.
