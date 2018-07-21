@@ -11,8 +11,11 @@ layout: post
 
 Vik and Captain John on the day we landed in Gaza, August 23, 2008
 
+<br />
+<br />
 
-By Bella, Co-founder, the Free Gaza movement
+
+_By Bella, Co-founder, the Free Gaza movement_
 
 
 Vik was part of my life for seven years. With a family background of anti-fascism, he carried a deep personal belief in social justice and peace, and a commitment to writing, working, fighting for these. By working hard throughout most of the year in Italy, while developing his voice as a writer in the evenings via the internet, he self-funded regular windows of volunteering abroad. 
