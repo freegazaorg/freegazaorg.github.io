@@ -2,7 +2,7 @@
 published: true
 layout: post
 ---
-By Sharon Lock, Co-founder, the Free Gaza movement
+By Bella Co-founder, the Free Gaza movement
 
 ![Vittorio.jpg]({{site.baseurl}}/images/Vittorio.jpg)
 
