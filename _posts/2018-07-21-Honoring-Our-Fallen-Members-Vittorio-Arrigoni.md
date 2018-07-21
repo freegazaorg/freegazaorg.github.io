@@ -2,7 +2,7 @@
 published: true
 layout: post
 ---
-**It's appropriate to post this beautifully-written tribute to Vik on the day the current flotilla leaves for Gaza. In his memory, Free Gaza wishes then a safe journey. As he always said, 'Stay Human."**
+**It's appropriate to post this beautifully-written tribute to Vik on the day the current flotilla leaves for Gaza. In his memory, Free Gaza wishes them a safe journey. As he always said, 'Stay Human."**
 
 
 
