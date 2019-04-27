@@ -3,11 +3,12 @@ published: true
 layout: post
 ---
 ## There is a new filing regarding the Mavi Marmara case at the ICC
-One of the attorneys who is interested in the case wrote to us yesterday with this comment regarding the UK law office's new filing with the ICC. He is not connected to the filing, but has been following the events at the ICC carefully. 
+
+This note comes from the law firm in the UK that represents the victims on board the Mavi Marmara, attacked by the Israeli Navy on May 31, 2010 while on a humanitarian mission to Gaza. 
+
+One of the attorneys who is interested in the case wrote to us yesterday with this comment.(He is not with the office in the UK)
 
 **"I just checked the Appeals Chamber’s order on the court’s website about details for the May 1 hearing and read the questions they are posing for the May 1 hearing. To judge by the questions, the Appeals Chamber seems inclined against the Prosecutor." This is very good news. The mainstream media may not cover this case, but you can be sure, we will.**
-
-The news is good because the UK that represents the victims on board the Mavi Marmara filed, asking the prosecutor to review the information again.
 
 From the law offices in the UK..."Dear all, We are writing to inform you of the most recent development at the International Criminal Court (ICC) regarding our ongoing case concerning the Gaza Freedom Flotilla of 31 May 2010, in which you are represented as a victim. Since the deadly and illegal attack by IDF soldiers on the Mavi Marmara and Gaza Freedom Flotilla in 2010, we have relentlessly been seeking justice in national and international legal systems on behalf of the families of the 10 martyrs and yourselves. 
 
