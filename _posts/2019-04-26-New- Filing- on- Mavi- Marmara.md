@@ -19,5 +19,3 @@ The legal process commenced on 14 May 2013 when an application to the ICC was ma
 Whilst the legal process continues, we have very recently been informed by the ICC that the Appeals Chamber will hold an oral hearing on 1st May 2019. The Appeals Chamber set out specific questions it seeks answers to in regards to the Prosecutor’s appeal, for which the parties (Government of Comoros, Victims, Prosecutor and Counsel for the internal victim’s section at the ICC) will answer during the hearing. The oral hearing will be before the five judges on the Appeals Chamber, including the presiding judge for this appeal; Judge Solomy Balungi Bossa. 
 
 This is a significantly important and historical occasion for our case and in the history of the ICC. It is a very rare occasion as these kind of oral hearings almost never happens. It highlights the importance of the case to the future of the ICC, and of the legal issues that will be argued. During the hearing, we – as your legal team -, will make submissions on the issues raised on your behalf.
-
-
