@@ -2,7 +2,7 @@
 published: true
 layout: post
 title: 08-30-2018-David Schermerhorn (USA)
-date: {}
+date: 2008-08-21 04:54:08.000000000 +02:00
 ---
 
 David Schermerhorn is an adventurer, film maker and supporter of the rights of Palestinians. He has gone skydiving as a tribute to the people of Gaza and their Right of Return, marched in anti-Trump rallies, tended bees, traveled to Mexico, and to Alaska 
