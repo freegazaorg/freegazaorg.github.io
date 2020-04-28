@@ -2,7 +2,7 @@
 published: true
 layout: post
 ---
-On May 9, the co-fonders of the Free Gaza movement as well as moderator, Ann Wright will participate in a 90-minute webcast on "How Did We Ever Manage to Sail To Gaza? No Social Media... Only Email and Committed Activists." This is a webcast on how to start a movement and what others can learn from us. 
+On May 9, the co-founders of the Free Gaza movement as well as moderator, Ann Wright will participate in a 90-minute webcast on "How Did We Ever Manage to Sail To Gaza? No Social Media... Only Email and Committed Activists." This is a webcast on how to start a movement and what others can learn from us. 
 
 Join us. We will update time and provide a sign-in on ZOOM as we get closer to the date. Below is one of the pieces from **Musheir Al-Fara**, the only Palestinian onboard our two boats who comes from Gaza. It is in our book, Freedom Sailors, https://www.goodreads.com/book/show/15993465-freedom-sailors. 
 
