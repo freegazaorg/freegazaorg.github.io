@@ -2,10 +2,7 @@
 published: true
 layout: page
 ---
-## A New Post
-
-                                            
-                                                                              FREE GAZA MOVEMENT
+                                                                                                                      
 **DEAR FRIENDS AND SUPPORTERS OF BREAKING THE ILLEGAL ISRAELI BLOCKADE OF GAZA**
 
 **Join us Saturday May 9, (10h00 PDT, 12h00 CDT, 13h00 EDT, 18h00 UK, 19h00 CEST, 20h00 Greece/Gaza)** 
@@ -45,8 +42,3 @@ Date to be determined   Filmmaker Rifat Audeh with his film "The Truth: Lost at 
 COVID 19 IN PALESTINE:
 
 Please consider donating to UNWRA's Covid-19 urgent response appeal for healthcare in Palestine, see here: [https://donate.unrwa.org/covid-19/~my-donation](https://donate.unrwa.org/covid-19/~my-donation)
-
-
-
-
-
