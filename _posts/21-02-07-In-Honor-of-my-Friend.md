@@ -2,6 +2,8 @@
 published: true
 layout: post
 ---
+by Greta Berlin
+
 Mary Hughes Thompson, 87, died on February 5, 2021 in Los Angeles, California. She is survived by her son, Andy Hughes, 65, and a granddaughter, Selena Hughes, 20, from Guelph, Canada. When we asked her who she wanted donations to go to, she asked us to let everyone know they should go to Middle East Children's Alliance (MECA). They have now set up a page to collect funds to build a playground in her honor in Gaza. Please donate and share.  
 [ https://secure.everyaction.com/CrA31jojiEmJVM6MQppEqg2]( https://secure.everyaction.com/CrA31jojiEmJVM6MQppEqg2)
 
