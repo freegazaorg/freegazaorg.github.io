@@ -9,3 +9,4 @@ date: 2009-01-30
 * [Local affiliates](/about-us/local-affiliates/)
 * [Who we are](/about-us/who-we-are/)
 * [Activist resources](/about-us/activist-resources/)
+* [Our fallen members](/about-us/our-fallen-members/)
