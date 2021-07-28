@@ -2,9 +2,9 @@
 published: true
 layout: post
 ---
-FOR IMMEDIATE RELEASE
+**UPDATE ON THESE TRIALS - THE ISRAELI AUTHORITIES ARE TORTURING THESE YOUNG MEN AGAIN BY MOVING THE DATE OF THE TRIAL FOR THE THRID TIME - TO OCTOBER 19, 2021 - CAUSING EMOTIONAL TRAUMA FOR THE FAMILIES AND THE YOUNG MEN**
 
-Contact: Rochelle Santos, +1 917-558-7168, email: rochellesantosw55@gmail.com
+Contact: Rochelle Santos email: rochellesantosw55@gmail.com
 Media Correspondent, Free Gaza movement
 
 New York, July 27, 2021: For almost three months, the military occupation has imprisoned these 7, first in Moscobiyeh jail where they were tortured and then all but  one transferred to Ofer prison where they remain. They are from the farming village of Bil’in, occupied Palestine, well known for its nonviolent protests against the Israeli confiscation of their farmland.
@@ -13,7 +13,7 @@ Israel has incarcerated them on highly dubious charges in line with a directive,
 
 ![Screen Shot 2021-07-27 at 9.11.02 PM.png]({{site.baseurl}}/images/Screen Shot 2021-07-27 at 9.11.02 PM.png)
 
-                           Israel is torturing these young men into giving false confessions.
+                       Israel is torturing these young men into giving false confessions.
 
 A week later, international activists began a petition signed by dozens of well-known activists including Roger Waters, Colonel Ann Wright, Coleen Rowley, Jafar Ramini, Huwaida Arraf, Baroness Jenny Tonge, and Miko Peled. Their names as well as other signers are listed on the petition asking for the release of the Bil’in Seven.
 
@@ -38,10 +38,3 @@ All the hearings have been scheduled for July 28th. If the hearing date goes as 
 “Free the Bi’lin Seven from Ofer Prison immediately! Kidnapping, torturing innocent Indigenous Palestinians, including minors, not only violates a plethora of international laws & Human Rights; it’s cruel and inhumane. Bi’lin residents are renowned for their peaceful protests and non-violent resistance, wanting peace, justice and freedom to be able to live on their homeland, without brutal occupation.”
 
 [https://bit.ly/SaveBilin7](https://bit.ly/SaveBilin7)
-
-
-
- 
-
-
-
