@@ -4,7 +4,7 @@ layout: post
 ---
 ### by Greta Berlin
 
-   ### Mary Hughes Thompson and I were sitting in the Knight’s Palace in 2005 when Sharon pulled the illegal Israeli settlers out of Gaza. We watched with such joy as they were shoved, pushing and yelling, onto buses and forced to leave Gaaza. Israel loudly proclaimed to the world that Gaza was free. 
+### Mary Hughes Thompson and I were sitting in the Knight’s Palace in 2005 when Sharon pulled the illegal Israeli settlers out of Gaza. We watched with such joy as they were shoved, pushing and yelling, onto buses and forced to leave Gaaza. Israel loudly proclaimed to the world that Gaza was free. 
 
 ### Within days, dozens of us who had volunteered for the International Solidarity Movement began coming up with ideas on how to get to Gaza. Five of us, all graduates of ISM direct-action decided we’d call their bluff and organized the first flotilla of boats…ok It was two boats…to sail to Gaza. 
 
