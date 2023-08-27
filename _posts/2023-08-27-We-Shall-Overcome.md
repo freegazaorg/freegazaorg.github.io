@@ -51,7 +51,7 @@ Four months later, during Operation Cast Lead, the Israeli Occupation Forces dro
 
 Listen to his plea for humanity... as well as the plea of this little girl at the end of the tape to stop the insanity of Israel’s occupation.
 
-[https://studio.youtube.com/video/-xHk9_X1Sas/edit](https://studio.youtube.com/video/-xHk9_X1Sas/edit)
+[https://www.youtube.com/watch?v=-xHk9_X1Sas](https://www.youtube.com/watch?v=-xHk9_X1Sas)
 
 Episide 7: "In total by August 2023, at least 208 Palestinians - 36 of them children - have been killed by Israeli fire since the first of the year, a rate of almost one fatality per day."
 Why can't we stop Israeli war crimes? 
@@ -80,7 +80,7 @@ Episode 9: All through that terrible night, our two boats rocked, battered by en
 
 We had arrived.
 
-[https://studio.youtube.com/video/cBAkRok-EtI/edit](https://studio.youtube.com/video/cBAkRok-EtI/edit)
+[https://www.youtube.com/watch?v=cBAkRok-EtI](https://www.youtube.com/watch?v=cBAkRok-EtI)
 
 Episode 10: EPILOGUE - Thanks to Roger Waters for the song
 
@@ -91,7 +91,4 @@ No boat has sailed back into Gaza since December 2008, but it hasn't stopped ini
 
 The boats WILL continue to sail. WE SHALL OVERCOME.
 
-[https://studio.youtube.com/video/6XdGtjIOo80/edit](https://studio.youtube.com/video/6XdGtjIOo80/edit)
-
-
-
+[https://www.youtube.com/watch?v=6XdGtjIOo80](https://www.youtube.com/watch?v=6XdGtjIOo80)
