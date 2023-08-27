@@ -17,32 +17,32 @@ For one brief shining moment, Gaza was free.
 
 Episode 1: We begin with this beautiful send-off from Jane Chesterman Jewell.
 
-[https://studio.youtube.com/video/9UWsj0sdgjQ/edit](https://studio.youtube.com/video/9UWsj0sdgjQ/edit)
+[https://youtu.be/9UWsj0sdgjQ](https://youtu.be/9UWsj0sdgjQ)
 
 Episode 2: We've been asked many times why 44 of us were crazy enough to think we could actually sail to Gaza and why we would choose such a risky direct action against the military might of Israel.
 
 We were asked to think about the personal reason we were going. 
 Please share widely as a tribute to the Palestinians of Gaza and those of us who sailed 15 years ago. We hope you enjoy the passionate answers. 
 
-[https://studio.youtube.com/video/UnaOfWseozk/edit](https://studio.youtube.com/video/UnaOfWseozk/edit)
+[https://youtu.be/UnaOfWseozk](https://youtu.be/UnaOfWseozk)
 
 Episode 3: Why did we succeed? We succeeded because we had a tight-knit core that we already trusted,  as all organizers had worked with the ISM. In fact, the majority of the 44 passengers were graduates of the ISM. Literally, many of us had faced Israeli settlers and the military when we worked in the occupied West Bank, and nothing…nothing…was going to stop us. We’d already been shot, tear-gassed, arrested and some of us deported. The more they pushed, the more we pushed back. 
 
 We succeeded because we never lost sight that our objective was to sail to Gaza. These are just some of the internationals who believed in the dream of sailing to Gaza. George Katsiaficas, Ph.D., Norman Saul, Ph.D. Huwaida Arraf, Co-Founder, ISM, Greta Berlin, Co-founder, Free Gaza movement, Soctt Kennedy. Kathy Sheetz
 
-[https://studio.youtube.com/video/wx49ly4M-Ks/edit](https://studio.youtube.com/video/wx49ly4M-Ks/edit)
+[https://youtu.be/wx49ly4M-Ks](https://youtu.be/wx49ly4M-Ks)
 
 Episode 4: Our first three episodes talked about why we wanted to sail to Gaza. Every passenger had a personal reason. And those reasons solidified our commitment to each other as well as to the Palestinians waiting for us in Gaza.
 
 But what were we actually going in? This episode shows you what those wooden boots looked like, how they were readied for a trip across the Mediterranean and how small they really were.
 
-[https://studio.youtube.com/video/suBW3uf-qmc/edit](https://studio.youtube.com/video/suBW3uf-qmc/edit)
+[https://youtu.be/suBW3uf-qmc](https://youtu.be/suBW3uf-qmc)
 
 Episode 5: The song you hear on this clip was written for us as we got ready to leave. And these are photos of just some of the 44 passengers on board those boats as well as the Palestinians who greeted us when we arrived.
 
-Over the next week, we'll post more short clips of this historic voyage and our Palestinian partners. We hope you enjoy this one as it was so joyous.
+We hope you enjoy this one as it was so joyous.
 
-[https://studio.youtube.com/video/CxSr-4vby98/edit](https://studio.youtube.com/video/CxSr-4vby98/edit)
+[https://youtu.be/CxSr-4vby98](https://youtu.be/CxSr-4vby98)
 
 Episode 6: The first 5 stories were full of joy, anticipation, and frustration as we waited to sail to Gaza. This one reminds us of why we must continue to put pressure on Israel.
 During that first trip to Gaza, Kathy Sheetz interviewed Palestinian/American NASA Astro-physicist, Professor Suleiman Baraka. He was waiting to return to the US, and Israel had refused to allow him out of Gaza’s concentration camp. He was finally able to leave because, after our first trip, Israel opened Gaza's prison gates for a few weeks (to save face).  His wife and children were not.
@@ -63,7 +63,7 @@ We sailed against all odds of getting to Gaza. Listen to these students in 2008.
 
 Hedy Epstein, "it takes lots of us, hundreds of thousands of us to make changes. But that doesn't mean that I or anybody else should stop what we're doing. Because you never know when we will make a difference "
 
-[https://studio.youtube.com/video/t0Bwb-6T0D0/edit](https://studio.youtube.com/video/t0Bwb-6T0D0/edit)
+[[https://youtu.be/t0Bwb-6T0D0](https://youtu.be/t0Bwb-6T0D0)
 
 Episode 8: Leaving for Gaza, August 22, 2008.
 We were ecstatic to leave Cyprus on that foggy, cool day. 44 of us lined up, got our passports stamped, and boarded the two small boats. We faced 32 hours of uncertainty. After all, Israeli supporters, its military, and the government had been threatening us for over a month.
@@ -72,7 +72,7 @@ Our joy far outweighed our fear. Once again, we had no idea that over the next d
 
 We left anyhow, escorted out to sea by the Cypriot Coast Guard.
 
-[https://studio.youtube.com/video/RNqlu7CFXIo/edit](https://studio.youtube.com/video/RNqlu7CFXIo/edit)
+[https://youtu.be/RNqlu7CFXIo](https://youtu.be/RNqlu7CFXIo)
 
 Episode 9: All through that terrible night, our two boats rocked, battered by enormous waves, Israel had cut off all communication devices except for Channel 16, which kept saying "They are Lost, they are lost, they are lost." Passengers were sick. Israeli warships monitored us. When dawn came on August 23, we saw nothing but water, our captains working on compass and walky-talky to guide us toward Gaza.
 
