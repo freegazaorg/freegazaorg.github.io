@@ -4,6 +4,8 @@ layout: post
 ---
 By Greta Berlin
 
+
+
 ![BeingGuidedIntoGaza.jpg]({{site.baseurl}}/images/BeingGuidedIntoGaza.jpg)
 
 
