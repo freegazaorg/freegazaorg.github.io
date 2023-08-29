@@ -2,7 +2,7 @@
 published: true
 layout: post
 ---
-By Greta Berlin
+By Greta Berlin and Kathy Sheetz
 
 
 
