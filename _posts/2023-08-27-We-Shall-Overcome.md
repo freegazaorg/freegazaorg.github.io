@@ -9,7 +9,7 @@ By Greta Berlin and Kathy Sheetz
 ![BeingGuidedIntoGaza.jpg]({{site.baseurl}}/images/BeingGuidedIntoGaza.jpg)
 
 
-On the occasion of the Free Gaza movement’s 15th anniversary, we're posting the ten videos of our journey. We sailed into Gaza that bright afternoon, August 23, 2008, to the cheers of 40,000 Palestinians waiting for us. These videos show our struggles, our optimism, the strength of Palestinians waiting for us, why we sailed, and how we finally arrived.
+On the occasion of the Free Gaza movement’s 15th anniversary, we're posting the eleven videos of our journey. We sailed into Gaza that bright afternoon, August 23, 2008, to the cheers of 40,000 Palestinians waiting for us. These videos show our struggles, our optimism, the strength of Palestinians waiting for us, why we sailed, and how we finally arrived.
 
 We hope you enjoy watching them as much as we enjoyed arriving on that day.
 
