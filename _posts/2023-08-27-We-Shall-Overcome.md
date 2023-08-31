@@ -19,7 +19,7 @@ For one brief shining moment, Gaza was free.
 
 Episode 1: We begin with this beautiful send-off from Jane Chesterman Jewell.
 
-[https://youtu.be/9UWsj0sdgjQ](https://youtu.be/9UWsj0sdgjQ)
+[https://www.youtube.com/watch?v=rgv8BJhmNWc&t=13s](https://www.youtube.com/watch?v=rgv8BJhmNWc&t=13s)
 
 Episode 2: We've been asked many times why 44 of us were crazy enough to think we could actually sail to Gaza and why we would choose such a risky direct action against the military might of Israel.
 
@@ -28,7 +28,9 @@ Please share widely as a tribute to the Palestinians of Gaza and those of us who
 
 [https://youtu.be/UnaOfWseozk](https://youtu.be/UnaOfWseozk)
 
-Episode 3: Why did we succeed? We succeeded because we had a tight-knit core that we already trusted,  as all organizers had worked with the ISM. In fact, the majority of the 44 passengers were graduates of the ISM. Literally, many of us had faced Israeli settlers and the military when we worked in the occupied West Bank, and nothing…nothing…was going to stop us. We’d already been shot, tear-gassed, arrested and some of us deported. The more they pushed, the more we pushed back. 
+Episode 3: Why did we succeed? 
+
+We succeeded because we had a tight-knit core that we already trusted,  as all organizers had worked with the ISM. In fact, the majority of the 44 passengers were graduates of the ISM. Literally, many of us had faced Israeli settlers and the military when we worked in the occupied West Bank, and nothing…nothing…was going to stop us. We’d already been shot, tear-gassed, arrested and some of us deported. The more they pushed, the more we pushed back. 
 
 We succeeded because we never lost sight that our objective was to sail to Gaza. These are just some of the internationals who believed in the dream of sailing to Gaza. George Katsiaficas, Ph.D., Norman Saul, Ph.D. Huwaida Arraf, Co-Founder, ISM, Greta Berlin, Co-founder, Free Gaza movement, Soctt Kennedy. Kathy Sheetz
 
@@ -46,7 +48,10 @@ We hope you enjoy this one as it was so joyous.
 
 [https://youtu.be/CxSr-4vby98](https://youtu.be/CxSr-4vby98)
 
-Episode 6: The first 5 stories were full of joy, anticipation, and frustration as we waited to sail to Gaza. This one reminds us of why we must continue to put pressure on Israel.
+Episode 6: Listen to the people of Gaza
+
+The first 5 stories were full of joy, anticipation, and frustration as we waited to sail to Gaza. This one reminds us of why we must continue to put pressure on Israel.
+
 During that first trip to Gaza, Kathy Sheetz interviewed Palestinian/American NASA Astro-physicist, Professor Suleiman Baraka. He was waiting to return to the US, and Israel had refused to allow him out of Gaza’s concentration camp. He was finally able to leave because, after our first trip, Israel opened Gaza's prison gates for a few weeks (to save face).  His wife and children were not.
 
 Four months later, during Operation Cast Lead, the Israeli Occupation Forces dropped a bomb on his home, killing his 11-year-old son.
@@ -55,7 +60,9 @@ Listen to his plea for humanity... as well as the plea of this little girl at th
 
 [https://www.youtube.com/watch?v=-xHk9_X1Sas](https://www.youtube.com/watch?v=-xHk9_X1Sas)
 
-Episide 7: "In total by August 2023, at least 208 Palestinians - 36 of them children - have been killed by Israeli fire since the first of the year, a rate of almost one fatality per day."
+Episide 7: Taking to Hedy Epstein, Holocaust Survivor
+
+"In total by August 2023, at least 208 Palestinians - 36 of them children - have been killed by Israeli fire since the first of the year, a rate of almost one fatality per day."
 Why can't we stop Israeli war crimes? 
 Why can't we hold their leaders accountable?
 Why is Israel above international law? 
@@ -94,3 +101,13 @@ No boat has sailed back into Gaza since December 2008, but it hasn't stopped ini
 The boats WILL continue to sail. WE SHALL OVERCOME.
 
 [https://www.youtube.com/watch?v=6XdGtjIOo80](https://www.youtube.com/watch?v=6XdGtjIOo80)
+
+Episode 11: What's Next?
+
+After having shattered the Israeli blockade of Gaza earlier this week, the Free Gaza and Liberty departed for Cyprus on Auguest 28. 
+We took several Palestinians who had been denied exit visas by Israel,  Among them were Saed Mosleh, age 14, of Beit Hanoon, Gaza. An Israeli tank shell blew his leg off and he's with his father to seek medical treatment. (The last we knew, Saed is doing very well in Cyprus)
+"I can't believe we're finally able to leave for medical treatment," said Khaled Mosleh, Saed's father. "This is a miracle of God."
+Also on board was the Darwish family, who were finally reunited with their relatives in Cyprus.
+Here is the final video of this 15th anniversary, set to the stirring music of the Palestinian National Anthem.
+
+[https://www.youtube.com/watch?v=5oA82KVPeQ4](https://www.youtube.com/watch?v=5oA82KVPeQ4)
