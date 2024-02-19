@@ -3,7 +3,7 @@ published: true
 layout: post
 ---
 By Greta Berlin and Kathy Sheetz
-
+Footage courtesy of Kathy and Courtney Sheetz, @knowyourfootprints
 
 
 ![BeingGuidedIntoGaza.jpg]({{site.baseurl}}/images/BeingGuidedIntoGaza.jpg)
