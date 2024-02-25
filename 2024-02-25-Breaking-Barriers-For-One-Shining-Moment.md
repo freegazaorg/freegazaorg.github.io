@@ -2,8 +2,6 @@
 published: 'true'
 layout: page
 ---
-## A New Post
-
 Join in the commemoration of the 15th anniversary of the Free Gaza Movement with their special documentary. Delve into their remarkable journey, which spans over a decade and a half, filled with captivating details and moving songs. This documentary provides an in-depth look at their unwavering commitment to breaking the Israeli blockade on the Gaza Strip.
 
 [https://www.youtube.com/watch?v=tqwOSswL5kg](https://www.youtube.com/watch?v=tqwOSswL5kg)
