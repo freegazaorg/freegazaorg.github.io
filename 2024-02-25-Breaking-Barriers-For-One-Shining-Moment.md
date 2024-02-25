@@ -15,4 +15,4 @@ Throughout the video, viewers will be moved by the evocative songs that have bec
 
 Join the celebration, be part of the legacy, and help spread this remarkable story by sharing this video with your friends and family.
 
-Two wonderful translators put this 40-minute tribute to our first sailing to Gaza togehter, then translated it into Arabic. We post today as a remembrance of that first trip and as a tribute to the people of Gaza. Never forget them. 
+Two wonderful translators put this 40-minute tribute to our first sailing to Gaza togehter, then translated it into Arabic. We post today as a remembrance of that first trip and as a tribute to the people of Gaza. Never forget them.
