@@ -2,7 +2,7 @@
 published: 'true'
 layout: post
 ---
-
+By Free Gaza
 
 ![]({{site.baseurl}}images/Greta?Haniyeh.jpeg)
 
@@ -24,4 +24,4 @@ We were so thrilled that day, August 28, 2008. Haniya gave diplomatic Palestinia
 ![Screen Shot 2024-08-02 at 11.42.09 AM.png]({{site.baseurl}}/images/Screen Shot 2024-08-02 at 11.42.09 AM.png)
 ![Screen Shot 2024-08-02 at 11.41.51 AM.png]({{site.baseurl}}/images/Screen Shot 2024-08-02 at 11.41.51 AM.png)
 
-Our deepest sympathies go out to the Palestinians of Gaza and to the remaining family members of this kind and quiet man who had been working on a ceasefire resolution before being assassinated by Israel. 
+Our deepest sympathies go out to the Palestinians of Gaza and to the remaining family members of this kind and quiet man who had been working on a ceasefire resolution before being assassinated by Israel.
