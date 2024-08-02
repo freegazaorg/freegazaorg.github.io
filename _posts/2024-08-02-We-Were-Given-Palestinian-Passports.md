@@ -6,7 +6,7 @@ By Free Gaza
 
 ![]({{site.baseurl}}images/Greta?Haniyeh.jpeg)
 
-On the day our first successful flotilla left Gaza, August 29, 2008, we were presented with Palestinian passports. The 44 of us who received them treasure them. The brutal assassination of Ismail Haniyeh has shocked us all. He was very humble when we met him in 2008, lived modestly in a refugee camp in Gaza, and was not ostentatious the way Abbas and the PA were when they tried to take over Gaza after Hamas won the election. Abbas had a mansion in Gaza. Haniyeh had a modest 3-bedroom house.
+On the day our first successful flotilla left Gaza, August 28, 2008, we were presented with Palestinian passports. The 44 of us who received them treasure them. The brutal assassination of Ismail Haniyeh has shocked us all. He was very humble when we met him in 2008, lived modestly in a refugee camp in Gaza, and was not ostentatious the way Abbas and the PA were when they tried to take over Gaza after Hamas won the election. Abbas had a mansion in Gaza. Haniyeh had a modest 3-bedroom house.
 
 ![Greta:Haniyeh.jpeg]({{site.baseurl}}/images/Greta:Haniyeh.jpeg)
 
