@@ -18,7 +18,7 @@ So please don't insult my intelligence by calling me a terrorist sympathiser, th
 
 Kathleen O'Connor Wang was demonstrating in Washington DC and talked about how we all received our passports from Haniyeh. [https://www.instagram.com/reel/C0UIty4rcQg/](https://www.instagram.com/reel/C0UIty4rcQg/) said, "I am in mourning." 
 
-We were so thrilled that day, August 28, 2008. Haniya gave diplomatic Palestinian passports to 44 international peace activist who returned to Cyprus with a few Palestinians residents on board. We thought we'd opened a sea lane from Cyprus to Gaza. In fact, we were able to sail into Gaza four more times before Israel began attacking us. Here are a few more photos of very happy passengers.
+We were so thrilled that day, August 28, 2008. Haniya gave diplomatic Palestinian passports to 44 international peace activists who returned to Cyprus with a few Palestinians residents on board. We thought we'd opened a sea lane from Cyprus to Gaza. In fact, we were able to sail into Gaza four more times before Israel began attacking us. Here are a few more photos of very happy passengers.
 
 ![Screen Shot 2024-08-02 at 11.42.18 AM.png]({{site.baseurl}}/images/Screen Shot 2024-08-02 at 11.42.18 AM.png)
 ![Screen Shot 2024-08-02 at 11.42.09 AM.png]({{site.baseurl}}/images/Screen Shot 2024-08-02 at 11.42.09 AM.png)
